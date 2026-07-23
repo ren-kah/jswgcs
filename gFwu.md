@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月23日 21时25分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国登山健身大会覆盖百座名山，参与人次破500万</h3><br><p>大模型在新闻领域应用，AI生成快讯占比超60%。<br><br> | 来源：<code>https;//66tyzb.com.cn
+</code></p><br><br><h3>1年期LPR下调降低企业短期融资成本，经营活力提升</h3><br><p>山东高速放量上涨2.7%，路网资产盈利稳健。<br><br> | 来源：<code>https;//66tyzb.org.cn
+</code></p><br><br><h3>2026年全国体育产业总规模突破4万亿，全民健身蔚然成风</h3><br><p>土耳其经济通胀回落至30%，金融市场逐步稳定。<br><br> | 来源：<code>https;//66tyzbw.cn
+</code></p><br><br><h3>五粮液重回160元，关键点位的多空博弈分析</h3><br><p>钠离子电池实现装车应用，钠电池产业链全线爆发。<br><br> | 来源：<code>https;//66tyzbw.com.cn
+</code></p><br><br><h3>实控人邀约收购家电出海龙头，溢价30%发起全面要约</h3><br><p>存量房贷利率下调后居民消费回升，旅游酒店板块受益。<br><br> | 来源：<code>https;//66tyzbw.org.cn
+</code></p><br><br><h3>10年期国债收益率下行至2.5%以下，权益资产吸引力提升</h3><br><p>苏州推出“姑苏八点半”升级活动，夜间消费场景拓展至全域。<br><br> | 来源：<code>https;//66zbw.com.cn
+</code></p><br><br><h3>生物医药产业创新政策，CXO板块全线异动</h3><br><p>中航沈飞军机交付逻辑：军工整机龙头的长期成长空间。<br><br> | 来源：<code>https;//66zbw.org.cn
+</code></p><br><br><h3>机构+北向合力买入紫光国微1.5亿，军工芯片标的获资金布局</h3><br><p>实控人邀约收购家电出海龙头，溢价30%发起全面要约。<br><br> | 来源：<code>https;//67zbtyss.cn
+</code></p><br><br><h3>中国马术队首次获得亚运会金牌，马术运动实现零的突破</h3><br><p>西湖暑期游客量突破600万人次，免费景区持续释放民生红利。<br><br> | 来源：<code>https;//67zbtyss.com.cn
+</code></p><br><br><h3>卫星互联网星座加速组网，低轨卫星板块全线走强</h3><br><p>页岩气勘探开发政策，页岩气开采板块走强。<br><br> | 来源：<code>https;//67zbtyss.org.cn
+</code></p><br><br><h3>中国中铁放量上涨3.0%，一带一路订单同比翻倍</h3><br><p>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道。<br><br> | 来源：<code>https;//68zbty.cn
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>国内AI服务器出货量上半年同比增长120%，产业链全面爆发。<br><br> | 来源：<code>https;//68zbty.com.cn
+</code></p><br><br><h3>赣锋锂业涨超5.3%，固态电池试点线投产</h3><br><p>券商板块异动激活人气：行情回暖下的贝塔机会解析。<br><br> | 来源：<code>https;//68zbty.org.cn
+</code></p><br><br><h3>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍</h3><br><p>上半年全国汽车出口突破230万辆，连续3年位居全球第一。<br><br> | 来源：<code>https;//68zbtygw.cn
+</code></p><br><br><h3>全国塑料吸管全面替代完成，可降解产品覆盖所有餐饮场景</h3><br><p>中国神华煤炭量价齐升，前三季度业绩预增超15%。<br><br> | 来源：<code>https;//68zbtygw.com.cn
+</code></p><br><br><h3>全球冷链物流市场规模突破4000亿美元，生鲜贸易增长</h3><br><p>全国危险废物处置能力突破2亿吨/年，安全处置率100%。<br><br> | 来源：<code>https;//68zbtygw.org.cn
+</code></p><br><br><h3>商业航天准入政策放宽，商业航天标的异动</h3><br><p>梅西领衔阿根廷队来华友谊赛3-1取胜，现场超5万球迷观赛。<br><br> | 来源：<code>https;//857tysszbmfgk.cn
+</code></p><br><br><h3>北方稀土政策壁垒：稀土开采总量控制下的稀缺性价值</h3><br><p>高管团队集体增持智慧交通标的，合计增持金额超1.2亿。<br><br> | 来源：<code>https;//857tysszbmfgk.com.cn
+</code></p><br><br><h3>社保基金现身工业AI龙头调研，行业渗透率数据首次公开</h3><br><p>阳光电源海外逆变器爆发，前三季度业绩预增110%。<br><br> | 来源：<code>https;//857tysszbmfgk.org.cn
+</code></p><br><br><h3>长安汽车自主转型路径：从传统燃油车到新能源的蜕变</h3><br><p>中国平安综合金融版图：保险+银行+投资的协同优势。<br><br> | 来源：<code>https;//857tysszbnba.cn
