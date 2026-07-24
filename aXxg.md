@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时22分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国湿地保护率达55%，新增国家湿地公园超百个</h3><br><p>全球新能源汽车电池市场规模突破3000亿美元，中国企业主导。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>北向资金连续5日净流入，降息后外资持续加仓核心资产</h3><br><p>中国中车涨超3.3%，海外轨交订单持续落地。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>政策性降息支持汽车消费，新能源汽车板块迎来定向利好</h3><br><p>隆平高科涨超4.4%，转基因商业化推进加速。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>中国铁人三项队亚洲杯夺冠，耐力项目实力跻身亚洲前列</h3><br><p>市场情绪疯狂时要冷静，情绪低迷时要保持信心。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>知名私募大手笔增持储能电池标的，海外户储订单获资本布局</h3><br><p>大模型在物流领域应用，路径规划效率提升30%。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>阳光电源异动拉升6.6%，储能逆变器份额全球第一。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>梅花生物氨基酸价格反弹，前三季度业绩预增超40%</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>印度经济增速达7.2%，成为全球增长最快主要经济体</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业</h3><br><p>燃料电池汽车示范应用，燃料电池标的全线异动。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>美联储降息周期开启，北向资金持续流入核心资产</h3><br><p>上半年全国集成电路产量同比增长18%，产业链自主可控推进。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>双汇发展肉制品盈利修复，前三季度业绩预增超20%</h3><br><p>中国电竞战队斩获英雄联盟S14全球总决赛冠军。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>智能网联汽车准入试点落地，车路协同标的拉升</h3><br><p>券商研究所扎堆调研智能电网标的，特高压设备中标数据。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>央行加大逆回购操作并下调利率，短期流动性持续充裕</h3><br><p>外资机构集中调研短视频出海标的，海外用户规模破亿。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>机器人减速器标的启动申购，谐波减速器国产替代率突破50%。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>实控人承诺6个月内不减持机器人控制器标的，稳定股价</h3><br><p>汽车大模型落地智能座舱，语音交互响应速度低于1秒。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>全国三北工程六期启动，规划造林超1000万公顷</h3><br><p>别被短期波动洗下车：核心资产的价值需要时间兑现。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>社保基金现身存储模组龙头，AI存储产品出货量超预期</h3><br><p>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>电阻产品价格上调4%，被动元件板块迎来行情</h3><br><p>中国女子篮球WNBA选手韩旭率队闯入季后赛，表现惊艳。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>社保基金现身半导体材料龙头，国产替代率突破70%</h3><br><p>矿产资源勘探政策，地质勘查标的全线异动。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>全球无人机市场规模突破1500亿美元，行业应用爆发</h3><br><p>全国城市节水型社会建设达标率达85%，用水效率提升。<br><br> | 来源：<code>www.ahhaiquan.cn
