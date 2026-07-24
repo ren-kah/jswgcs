@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分28秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国中铁一带一路订单落地，单季业绩预告超预期</h3><br><p>济南趵突泉暑期“趵突腾空”景观持续，日均客流超10万。<br><br> | 来源：<code>https://se-zhibo.com.cn
+</code></p><br><br><h3>上半年全国风电装机新增超3000万千瓦，清洁能源建设提速</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>https://secure-kaiyun-web.com.cn
+</code></p><br><br><h3>上海建工涨超2.9%，上海城市更新订单爆发</h3><br><p>海外资管组团调研光伏逆变器标的，海外市占率突破30%。<br><br> | 来源：<code>https://sedaohang.com.cn
+</code></p><br><br><h3>半导体国产替代推进：制造、设备、材料的突破路径</h3><br><p>全国老年大学体育课程覆盖超千万老人，健康老龄化推进。<br><br> | 来源：<code>https://sedog.com.cn
+</code></p><br><br><h3>全国金丝猴种群数量突破4万只，多个栖息地生态改善</h3><br><p>中兴通讯放量上涨4.8%，算力服务器业务高增。<br><br> | 来源：<code>https://sehua-tang.com.cn
+</code></p><br><br><h3>国内露营装备市场规模破千亿，国产品牌占据90%市场份额</h3><br><p>AI应用落地加速：办公、安防、教育的商业化机会。<br><br> | 来源：<code>https://sehuatang.com.cn
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升。<br><br> | 来源：<code>https://sejishikong.com.cn
+</code></p><br><br><h3>箱板纸价格上涨5%，包装产业链盈利改善</h3><br><p>三一重工全球化布局：工程机械龙头的第二增长曲线。<br><br> | 来源：<code>https://selifan.com.cn
+</code></p><br><br><h3>京津冀协同发展十周年，区域经济总量突破12万亿元</h3><br><p>保险资管扎堆调研煤炭智能化龙头，煤矿智能化改造渗透率。<br><br> | 来源：<code>https://selunyan.com.cn
+</code></p><br><br><h3>全球智能穿戴市场规模突破2000亿美元，消费电子回暖</h3><br><p>机构席位大额买入德业股份5300万，储能龙头获长线布局。<br><br> | 来源：<code>https://semantiantang.com.cn
+</code></p><br><br><h3>降准降息组合利好地产链，建材板块迎来估值修复</h3><br><p>万科A地产龙头抗风险能力：行业调整期的稳健经营逻辑。<br><br> | 来源：<code>https://semanwu.com.cn
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>中芯国际放量拉升7.1%，半导体国产替代逻辑再强化。<br><br> | 来源：<code>https://semeimei.com.cn
+</code></p><br><br><h3>保险资管扎堆调研绿电运营标的，电价弹性空间引热议</h3><br><p>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%。<br><br> | 来源：<code>https://seqingyouxi.com.cn
+</code></p><br><br><h3>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧</h3><br><p>基金公司集体到访消费电子龙头，苹果新品备货量曝光。<br><br> | 来源：<code>https://sesedongmanwang.com.cn
+</code></p><br><br><h3>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破</h3><br><p>北向资金连续增持养老产业标的，银发经济赛道获外资流入。<br><br> | 来源：<code>https://sesemanhua.com.cn
+</code></p><br><br><h3>五粮液批价上行逻辑：渠道库存优化下的价格体系修复</h3><br><p>航发动力放量拉升5.2%，军工发动机订单落地加速。<br><br> | 来源：<code>https://sesesexsehuwangzhan.cn
+</code></p><br><br><h3>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增</h3><br><p>恩捷股份异动拉升5.4%，锂电池隔膜份额持续提升。<br><br> | 来源：<code>https://sesewangzhan.cn
+</code></p><br><br><h3>机构席位大额买入德业股份5300万，储能龙头获长线布局</h3><br><p>社保基金新进重仓钙钛矿光伏标的，持仓占比达4.2%。<br><br> | 来源：<code>https://sesewangzhan.com.cn
+</code></p><br><br><h3>消费券集中发放，大消费板块迎来情绪催化</h3><br><p>QFII集中调研休闲食品龙头，线下渠道复购率数据公开。<br><br> | 来源：<code>https://seseyouxi.com.cn
+</code></p><br><br><h3>中国田径世锦赛斩获5金，男子百米接力打破亚洲纪录</h3><br><p>千禾味业零添加差异化路线：调味品赛道的突围逻辑。<br><br> | 来源：<code>https://sezaixian.cn
