@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分04秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>通威股份低位反弹，光伏产业链盈利预期改善</h3><br><p>石大胜华溶剂技术优势：锂电溶剂细分赛道的龙头价值。<br><br> | 来源：<code>https://xiaoluoli.com.cn
+</code></p><br><br><h3>北向资金大幅增持比亚迪，AH股同步获外资加仓</h3><br><p>稀土永磁政策红利：行业供需格局优化下的投资机会。<br><br> | 来源：<code>https://xiaomogu.com.cn
+</code></p><br><br><h3>海康威视涨超4.7%，AI安防业务收入增速回升</h3><br><p>液态奶价格上涨3%，乳制品板块迎来涨价催化。<br><br> | 来源：<code>https://xiaoshuhuang.cn
+</code></p><br><br><h3>多氟多涨超5.2%，六氟磷酸锂价格触底反弹</h3><br><p>美欧贸易谈判达成协议，解决钢铁铝关税争端。<br><br> | 来源：<code>https://xiaoshuikanfan.com.cn
+</code></p><br><br><h3>全球教育科技市场规模突破4000亿美元，线上教育持续普及</h3><br><p>东方电气风电设备订单爆发，前三季度业绩预增超35%。<br><br> | 来源：<code>https://xiaoxinnai.com.cn
+</code></p><br><br><h3>原油价格突破85美元/桶，油气开采板块盈利提升</h3><br><p>美联储连续第二次降息，北向资金单日净流入超百亿。<br><br> | 来源：<code>https://xiaoxuewang.com.cn
+</code></p><br><br><h3>长江经济带发展成效显著，生态优先绿色发展格局形成</h3><br><p>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产。<br><br> | 来源：<code>https://xiaoyangmanguan.com.cn
+</code></p><br><br><h3>国际黄金价格回升至2100美元/盎司，避险需求再度升温</h3><br><p>降准资金定向支持半导体产业，芯片板块获流动性利好。<br><br> | 来源：<code>https://xiaoyuanchunse.com.cn
+</code></p><br><br><h3>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%</h3><br><p>外资资管连续加仓光伏N型电池标的，近3月持仓占比提升至8%。<br><br> | 来源：<code>https://xiaoyuandongmanku.com.cn
+</code></p><br><br><h3>农药价格开启新一轮涨价，农化板块盈利弹性释放</h3><br><p>紫金矿业创阶段新高，黄金有色板块沿趋势上行。<br><br> | 来源：<code>https://xiaozemaliya.com.cn
+</code></p><br><br><h3>中秋国庆旅游数据超预期，旅游酒店板块异动</h3><br><p>炒股到最后拼的是心态：再好的牛股拿不住也是白搭。<br><br> | 来源：<code>https://xie-shen-chang-guan.com.cn
+</code></p><br><br><h3>新型电力系统建设规划，电力设备板块走强</h3><br><p>机构资金联手买入晶澳科技7600万，组件龙头获机构抱团。<br><br> | 来源：<code>https://xin-pujing-yingshi.com.cn
+</code></p><br><br><h3>长安汽车涨停封板，深蓝系列车型销量破万</h3><br><p>算力基础设施建设指导意见，算力板块全线走强。<br><br> | 来源：<code>https://xin-pujing-yule.com.cn
+</code></p><br><br><h3>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录</h3><br><p>桂林山水暑期游热度回升，漓江游船日均发船超200艘。<br><br> | 来源：<code>https://xin-pujing-yulecheng.com.cn
+</code></p><br><br><h3>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑</h3><br><p>全国城市篮球联赛举办，覆盖百城参赛队伍破万支。<br><br> | 来源：<code>https://xin91shipin.cn
+</code></p><br><br><h3>东方电气风电设备订单爆发，前三季度业绩预增超35%</h3><br><p>全国疫苗接种覆盖率保持99%以上，免疫规划覆盖所有适龄人群。<br><br> | 来源：<code>https://xin91shipin.com.cn
+</code></p><br><br><h3>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒</h3><br><p>中兴通讯沿趋势线上行，通信板块的轮动机会。<br><br> | 来源：<code>https://xing-bake.com.cn
+</code></p><br><br><h3>全国PM2.5平均浓度同比下降8%，空气质量优良天数比率达87.5%</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://xing-daohang.cn
+</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点。<br><br> | 来源：<code>https://xing-fubaodaohang.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>三安光电化合物半导体布局：LED+碳化硅的长期空间。<br><br> | 来源：<code>https://xing-sheng-jiao.com.cn
