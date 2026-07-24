@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时06分52秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金单日买入中国神华1.5亿，高股息龙头获外资持续流入</h3><br><p>拉美多国签署货币互换协议，减少对美元依赖。<br><br> | 来源：<code>https://zaixian-guankan.com.cn
+</code></p><br><br><h3>社保基金现身存储模组龙头，AI存储产品出货量超预期</h3><br><p>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨。<br><br> | 来源：<code>https://zaixian-majiangpai.com.cn
+</code></p><br><br><h3>比亚迪垂直整合优势：供应链自主可控下的抗风险能力</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光。<br><br> | 来源：<code>https://zaixian91.cn
+</code></p><br><br><h3>游戏版号常态化发放，游戏板块持续异动</h3><br><p>美联储开启降息周期，人民币汇率迎来趋势性升值。<br><br> | 来源：<code>https://zaixiancheng.com.cn
+</code></p><br><br><h3>国内大模型国际标准制定话语权提升，主导十余项国际标准</h3><br><p>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功。<br><br> | 来源：<code>https://zaixiandou.cn
+</code></p><br><br><h3>大模型在水利领域应用，洪水预警提前量提升至72小时</h3><br><p>正泰电器户用光伏装机超预期，前三季度业绩预增超25%。<br><br> | 来源：<code>https://zaixianguankan-zh.com.cn
+</code></p><br><br><h3>公募基金集中调研IDC龙头，AI算力上架率创历史新高</h3><br><p>大秦铁路异动拉升2.8%，煤炭运输量稳步提升。<br><br> | 来源：<code>https://zaixiangui.com.cn
+</code></p><br><br><h3>万科A异动拉升，地产链反弹的关键位与风控思路</h3><br><p>双汇发展肉制品盈利修复，前三季度业绩预增超20%。<br><br> | 来源：<code>https://zaixianhuangyou.com.cn
+</code></p><br><br><h3>海大集团饲料技术优势：水产饲料龙头的研发壁垒</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>https://zaixianri.com.cn
+</code></p><br><br><h3>盈利的核心逻辑：在低估时布局，在逻辑兑现时离场</h3><br><p>中国中车涨超3.3%，海外轨交订单持续落地。<br><br> | 来源：<code>https://zaixianriben.com.cn
+</code></p><br><br><h3>比亚迪全产业链布局：从电池到整车的垂直整合优势</h3><br><p>北向资金连续流入紫金矿业，黄金龙头外资持仓持续提升。<br><br> | 来源：<code>https://zenmezuoaishipin.com.cn
+</code></p><br><br><h3>MLCC价格单月上涨5%，电容龙头盈利弹性释放</h3><br><p>航发动力放量拉升5.2%，军工发动机订单落地加速。<br><br> | 来源：<code>https://zh-17c.cn
+</code></p><br><br><h3>沃森生物涨超4.6%，新型疫苗临床进展超预期</h3><br><p>饼干产品价格上涨3%，食品细分板块盈利提升。<br><br> | 来源：<code>https://zh-91dongman.com.cn
+</code></p><br><br><h3>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿</h3><br><p>三亚暑期酒店入住率超98%，高端度假产品订单暴涨。<br><br> | 来源：<code>https://zh-baoyu.com.cn
+</code></p><br><br><h3>赛力斯单日大涨8.3%，问界新车型销量引爆市场</h3><br><p>中医药振兴发展规划，中药全板块集体上涨。<br><br> | 来源：<code>https://zh-bytv.com.cn
+</code></p><br><br><h3>外资机构集中调研种业龙头，转基因商业化落地节奏披露</h3><br><p>宝钢股份涨超3.1%，板材价格企稳回升。<br><br> | 来源：<code>https://zh-caoliushequ.cn
+</code></p><br><br><h3>AI办公软件渗透率超60%，成为职场人必备工具</h3><br><p>央行下调再贷款再贴现利率，小微和三农融资成本下行。<br><br> | 来源：<code>https://zh-chengren-yingyuan.com.cn
+</code></p><br><br><h3>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期</h3><br><p>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑。<br><br> | 来源：<code>https://zh-chengrenmanhua.com.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：消费电池+动力电池+储能的协同</h3><br><p>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%。<br><br> | 来源：<code>https://zh-dapigu.com.cn
+</code></p><br><br><h3>多地推出“文旅+农业”融合项目，采摘游订单同比增长80%</h3><br><p>天邦食品减亏路径：养殖行业周期底部的经营优化逻辑。<br><br> | 来源：<code>https://zh-diyici.com.cn
