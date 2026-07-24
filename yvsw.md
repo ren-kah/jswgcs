@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>三安光电化合物半导体布局：LED+碳化硅的长期空间</h3><br><p>中微公司放量拉升6.2%，刻蚀设备订单持续落地。<br><br> | 来源：<code>https://aiqingdaoluntandujia.org.cn
+</code></p><br><br><h3>游资知名席位打板长安汽车2.8亿，整车标的获短线资金热炒</h3><br><p>科达利放量拉升4.7%，锂电池结构件订单饱满。<br><br> | 来源：<code>https://aiqingdaoluntandujiatigong.org.cn
+</code></p><br><br><h3>外资单日扫货药明康德18亿，CXO赛道获外资集中流入</h3><br><p>铂价上涨10%，燃料电池催化剂板块迎来涨价催化。<br><br> | 来源：<code>https://aiqingdaoluntanshouye.org.cn
+</code></p><br><br><h3>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>https://aiqingdaoluntanwangzhi.org.cn
+</code></p><br><br><h3>智飞生物代理+自研双轮驱动：疫苗行业的稳健成长逻辑</h3><br><p>德业股份储能逆变器放量，前三季度业绩预增超100%。<br><br> | 来源：<code>https://aiqingdaoluntanyongjiuyuming.org.cn
+</code></p><br><br><h3>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露</h3><br><p>大模型在交通领域应用，城市拥堵率下降20%。<br><br> | 来源：<code>https://aiqingdaoluntanzaixianguankan.org.cn
+</code></p><br><br><h3>跨境电商综合试验区扩容，跨境物流板块集体上涨</h3><br><p>中航沈飞涨超4.7%，军机交付进度超市场预期。<br><br> | 来源：<code>https://aiqingdaoshouyeluntan.org.cn
+</code></p><br><br><h3>先导智能跳空高开6.1%，锂电设备海外订单爆发</h3><br><p>全国美术馆年展览超2万场，艺术惠民覆盖千万群众。<br><br> | 来源：<code>https://aiqingdaowangzhan.org.cn
+</code></p><br><br><h3>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算</h3><br><p>科大讯飞星火大模型V5.0发布，语音识别准确率突破99.8%。<br><br> | 来源：<code>https://aiqingdaowangzhi.org.cn
+</code></p><br><br><h3>国内大模型评测标准发布，统一行业能力评估体系</h3><br><p>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿。<br><br> | 来源：<code>https://aiqingdaoyazhou.org.cn
+</code></p><br><br><h3>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算</h3><br><p>AI数字人主播全面普及，超千家电视台启用AI虚拟主持人。<br><br> | 来源：<code>https://aiqingdaoyazhouluntan.org.cn
+</code></p><br><br><h3>头部券商到访游戏出海龙头，海外流水增速数据首次公开</h3><br><p>特变电工多晶硅布局：新能源全产业链的协同成长逻辑。<br><br> | 来源：<code>https://aiqingdaoyiluntanmianfeiluxian.org.cn
+</code></p><br><br><h3>头部机构组团到访中药创新药标的，医保谈判结果超预期</h3><br><p>多地推出名校优生引进政策，博士落户直接发放20万安家补贴。<br><br> | 来源：<code>https://aiqingdaoyongjiuyuming.org.cn
+</code></p><br><br><h3>全国虚拟电厂调控能力突破1亿千瓦，电网灵活性大幅提升</h3><br><p>民宿行业规范发展政策，乡村旅游标的全线拉升。<br><br> | 来源：<code>https://aiqingdaoyuming.org.cn
+</code></p><br><br><h3>全国马拉松赛事上半年举办超500场，参赛人次突破600万</h3><br><p>全球半导体产业周期复苏，销售额同比增长18%创历史新高。<br><br> | 来源：<code>https://aiqingdaozuixinyuming.org.cn
+</code></p><br><br><h3>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练</h3><br><p>冷链物流扶持政策，冷链物流板块集体上涨。<br><br> | 来源：<code>https://aiweinaiwang.com.cn
+</code></p><br><br><h3>华域汽车涨超3.9%，汽车零部件龙头业绩超预期</h3><br><p>券商研究所扎堆调研数字人民币标的，线下场景覆盖突破亿级。<br><br> | 来源：<code>https://aiyeapp.cn
+</code></p><br><br><h3>大模型在餐饮领域应用，AI智能配菜优化食材利用率</h3><br><p>钠离子电池材料价格上涨8%，钠电池产业链盈利优化。<br><br> | 来源：<code>https://aiyeapp.net.cn
+</code></p><br><br><h3>大模型在气象灾害预警领域应用，预警覆盖率提升至98%</h3><br><p>生物医药产业创新政策，CXO板块全线异动。<br><br> | 来源：<code>https://aiyeguanfangrukou.net.cn
+</code></p><br><br><h3>民用无人机管理新规，无人机产业链全线走强</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>https://aiyeguanwang.net.cn
