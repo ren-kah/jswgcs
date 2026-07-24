@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分31秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>水利工程建设规划，水利基建板块走强</h3><br><p>中芯国际行业格局分析：半导体制造国产替代的核心路径。<br><br> | 来源：<code>https://wuyeshipin.cn
+</code></p><br><br><h3>全国城市节水型社会建设达标率达85%，用水效率提升</h3><br><p>AI代码助手普及，程序员开发效率平均提升40%。<br><br> | 来源：<code>https://wuyeshipin.net.cn
+</code></p><br><br><h3>东方电缆海缆技术壁垒：海上风电海缆龙头的领先地位</h3><br><p>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价。<br><br> | 来源：<code>https://wuzaixianguankan.cn
+</code></p><br><br><h3>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争</h3><br><p>全国垃圾分类覆盖率达92%，资源化利用率提升至38%。<br><br> | 来源：<code>https://www-91.cn
+</code></p><br><br><h3>贵州茅台近5年财务复盘：高毛利背后的盈利稳定性逻辑</h3><br><p>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位。<br><br> | 来源：<code>https://www-91.com.cn
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>北方稀土突破前期平台，短线弹性有望释放。<br><br> | 来源：<code>https://www-91com.com.cn
+</code></p><br><br><h3>2026年暑期文旅总收入突破2万亿，创历史同期新高</h3><br><p>新能源汽车销量上半年突破550万辆，市场渗透率达48%。<br><br> | 来源：<code>https://www-91n.com.cn
+</code></p><br><br><h3>海康威视海外市场拓展：AI安防产品的全球份额提升</h3><br><p>光伏行业产能置换政策落地，落后产能出清标的异动。<br><br> | 来源：<code>https://www-91ncom.com.cn
+</code></p><br><br><h3>科技成长行情延续：AI算力、半导体、光模块的景气度排序</h3><br><p>蔚来汽车毛利率转正，单季业绩预告环比大幅改善。<br><br> | 来源：<code>https://www17ccom.com.cn
+</code></p><br><br><h3>全球智能家居市场规模突破1万亿美元，智慧家庭普及</h3><br><p>体育赛事与全民健身（100条）。<br><br> | 来源：<code>https://www17ccomqicao.com.cn
+</code></p><br><br><h3>量子信息产业规划发布，量子通信标的全线拉升</h3><br><p>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复。<br><br> | 来源：<code>https://www17cwang.com.cn
+</code></p><br><br><h3>北向资金大额扫货恩捷股份1.4亿，隔膜龙头获外资流入</h3><br><p>长电科技先进封装技术：全球封测龙头的份额提升逻辑。<br><br> | 来源：<code>https://www91com.com.cn
+</code></p><br><br><h3>大股东耗资6.3亿增持数字人民币标的，助力场景覆盖扩张</h3><br><p>全国研学基地超万家，覆盖所有地级市满足学生实践需求。<br><br> | 来源：<code>https://www91comvn.cn
+</code></p><br><br><h3>欧元区经济走出衰退，二季度GDP环比增长0.3%</h3><br><p>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产。<br><br> | 来源：<code>https://www91ncn.cn
+</code></p><br><br><h3>派能科技涨超7.5%，户用储能电池订单饱满</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>https://www91ncn.com.cn
+</code></p><br><br><h3>游资顶级席位打板天赐材料1.2亿，电解液标的获热炒</h3><br><p>安琪酵母海外收入爆发，单季业绩预告超预期。<br><br> | 来源：<code>https://www91ncom.cn
+</code></p><br><br><h3>长沙五一广场暑期夜间客流超25万，文和友等网红店排号超千桌</h3><br><p>AI手语翻译大模型上线，助力千万听障人士沟通无障碍。<br><br> | 来源：<code>https://www91ncom.com.cn
+</code></p><br><br><h3>天齐锂业锂价反弹，单季业绩预告环比大增</h3><br><p>全国乡村旅游重点村超千家，带动千万农民家门口就业。<br><br> | 来源：<code>https://www91ncomcn.com.cn
+</code></p><br><br><h3>英伟达发布新一代AI芯片，算力板块再度走强</h3><br><p>大北农种业布局：转基因商业化下的种业龙头成长逻辑。<br><br> | 来源：<code>https://www91ncomtanhua.com.cn
+</code></p><br><br><h3>东方财富用户粘性：互联网金融平台的流量沉淀逻辑</h3><br><p>长电科技放量上涨4.8%，先进封装订单饱满。<br><br> | 来源：<code>https://www91wang.cn
