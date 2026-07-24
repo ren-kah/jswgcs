@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分10秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>固德威户用储能布局：储能赛道细分龙头的成长路径</h3><br><p>上半年全国财政收入同比增长3.7%，民生支出占比超70%。<br><br> | 来源：<code>https://guochandiyiye.com.cn
+</code></p><br><br><h3>AI数字人直播常态化，超十万直播间启用AI虚拟主播</h3><br><p>原油价格突破85美元/桶，油气开采板块盈利提升。<br><br> | 来源：<code>https://guochanjingpinshipin.com.cn
+</code></p><br><br><h3>全国糖尿病患者规范管理人数超8000万，并发症发生率下降</h3><br><p>武当山暑期游客量突破120万人次，道教文化游持续升温。<br><br> | 来源：<code>https://guochanjingpinzaixian.com.cn
+</code></p><br><br><h3>趋势行情里最忌频繁操作：顺势而为远比猜顶猜底重要</h3><br><p>国内大模型行业应用案例破百万，覆盖千行百业。<br><br> | 来源：<code>https://guochanjinpin-new.com.cn
+</code></p><br><br><h3>全国高血压患者管理人数突破1亿人，规范管理率达90%</h3><br><p>矿产资源勘探政策，地质勘查标的全线异动。<br><br> | 来源：<code>https://guochanjiujiu.com.cn
+</code></p><br><br><h3>飞天茅台批价突破2900元，白酒龙头盈利超预期</h3><br><p>海缆价格上调5%，海缆龙头订单盈利弹性提升。<br><br> | 来源：<code>https://guochanjiujiujiu.com.cn
+</code></p><br><br><h3>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大</h3><br><p>外资机构集中调研存储芯片龙头，海外订单情况成焦点。<br><br> | 来源：<code>https://guochanqu.com.cn
+</code></p><br><br><h3>社保基金现身工业AI龙头调研，行业渗透率数据首次公开</h3><br><p>全国新能源汽车保有量突破3000万辆，减排效果显著。<br><br> | 来源：<code>https://guochanshipin-new.com.cn
+</code></p><br><br><h3>南昌推出“红色夜校”文旅项目，夜间红色体验游受热捧</h3><br><p>AI大模型企业启动申购，ToB付费转化率超行业平均水平。<br><br> | 来源：<code>https://guochantoupai.com.cn
+</code></p><br><br><h3>海康威视企稳回升，AI安防赛道需求逐步回暖</h3><br><p>国内大模型集中落地，AI办公标的迎来估值修复。<br><br> | 来源：<code>https://guochanyiqu.com.cn
+</code></p><br><br><h3>知名私募调研卫星互联网标的，低轨卫星组网计划披露</h3><br><p>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%。<br><br> | 来源：<code>https://guochanyiquerqusanqu.com.cn
+</code></p><br><br><h3>国内民宿市场规模破万亿，精品民宿均价同比上涨20%</h3><br><p>比亚迪全产业链布局分析：从电池到整车的协同优势。<br><br> | 来源：<code>https://guochanzhuanqu.com.cn
+</code></p><br><br><h3>科达利结构件精密制造：锂电池结构件龙头的全球份额</h3><br><p>海上风电深远海规划，深远海风电板块集体上涨。<br><br> | 来源：<code>https://guochanzi-pai.com.cn
+</code></p><br><br><h3>全国徒步露营大会举办，串联百公里山野路线吸引数万爱好者</h3><br><p>存款利率市场化调整机制优化，银行负债端成本进一步压降。<br><br> | 来源：<code>https://guodongchuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>政策性银行加大降息力度，基建项目融资成本大幅下降</h3><br><p>航发动力军机交付超预期，前三季度业绩预增超30%。<br><br> | 来源：<code>https://guuxfa.cn
+</code></p><br><br><h3>定向降息支持制造业高端化，工业母机板块获定向利好</h3><br><p>北向资金大额增持天齐锂业，锂矿龙头外资持仓环比大增。<br><br> | 来源：<code>https://h-youxi.com.cn
+</code></p><br><br><h3>大金重工塔筒全球布局：风电塔筒全球龙头的份额优势</h3><br><p>虾产品价格上涨15%，水产细分板块盈利弹性释放。<br><br> | 来源：<code>https://h5-mitaoshipin.com.cn
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>特变电工多晶硅布局：新能源全产业链的协同成长逻辑。<br><br> | 来源：<code>https://haideshirenqi.com.cn
+</code></p><br><br><h3>招商银行净息差企稳，前三季度业绩预增超15%</h3><br><p>全国生态环境监测网络全覆盖，实时数据向公众开放。<br><br> | 来源：<code>https://haideshirenqidongman.com.cn
+</code></p><br><br><h3>矿产资源勘探政策，地质勘查标的全线异动</h3><br><p>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善。<br><br> | 来源：<code>https://haijiao-luntan.cn
