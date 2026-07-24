@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分15秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>国内大模型企业估值破万亿，30家企业跻身独角兽行列</h3><br><p>先导智能跳空高开6.1%，锂电设备海外订单爆发。<br><br> | 来源：<code>https://luluca.com.cn
+</code></p><br><br><h3>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮</h3><br><p>汉缆股份输配电布局：国内电缆行业的龙头成长路径。<br><br> | 来源：<code>https://lulushe.com.cn
+</code></p><br><br><h3>中国男子110米栏小将跑出12秒90，接班刘翔创造新历史</h3><br><p>大模型轻量化部署方案成熟，中小企业接入成本下降90%。<br><br> | 来源：<code>https://lulusheguanwang.com.cn
+</code></p><br><br><h3>隆平高科种业业务爆发，前三季度业绩预增超50%</h3><br><p>北向资金大额扫货大金重工5100万，塔筒龙头获外资流入。<br><br> | 来源：<code>https://lulushexiazai.com.cn
+</code></p><br><br><h3>生猪价格突破18元/公斤，养殖板块盈利拐点显现</h3><br><p>大模型在物流领域应用，路径规划效率提升30%。<br><br> | 来源：<code>https://lumaoshe.org.cn
+</code></p><br><br><h3>抽水蓄能电站规划，抽水蓄能板块走强</h3><br><p>城市漫步"Citywalk"成为潮流，上半年相关订单同比增长120%。<br><br> | 来源：<code>https://lunlipian-zh.com.cn
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>养老金现身碳化硅衬底龙头，6英寸衬底产能释放进度披露。<br><br> | 来源：<code>https://lunlizaixian.com.cn
+</code></p><br><br><h3>白银价格单月上涨12%，贵金属板块集体异动</h3><br><p>赛力斯商业模式拆解：华为深度赋能下的整车成长逻辑。<br><br> | 来源：<code>https://luo-li.com.cn
+</code></p><br><br><h3>机构资金联手买入东方电气6200万，能源装备龙头获抱团</h3><br><p>陕西煤业资源禀赋优势：煤炭龙头的业绩稳定性解析。<br><br> | 来源：<code>https://luo-lidao.com.cn
+</code></p><br><br><h3>铜价创半年新高，铜业上市公司盈利迎来边际改善</h3><br><p>央行加大结构性降息力度，精准支持数字经济领域。<br><br> | 来源：<code>https://luo-lishe.com.cn
+</code></p><br><br><h3>高管团队集体调研后增持冷链物流标的，合计增持超8000万</h3><br><p>全国青少年体育赛事覆盖所有项目，参赛人次突破千万。<br><br> | 来源：<code>https://luobo-shipin.com.cn
+</code></p><br><br><h3>万科A异动，地产链政策宽松预期持续升温</h3><br><p>央行宣布定向降准1个百分点，精准支持普惠金融领域。<br><br> | 来源：<code>https://luobomanguan.com.cn
+</code></p><br><br><h3>海外对冲基金集中调研CXO龙头，新签订单增速超预期</h3><br><p>紫光国微特种芯片高增，单季业绩预告超预期。<br><br> | 来源：<code>https://luoli-she.com.cn
+</code></p><br><br><h3>中秋国庆旅游数据超预期，旅游酒店板块异动</h3><br><p>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析。<br><br> | 来源：<code>https://luoliciyuan.com.cn
+</code></p><br><br><h3>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放</h3><br><p>磷肥价格单月上涨8%，磷化工龙头盈利改善。<br><br> | 来源：<code>https://luolileyuan.com.cn
+</code></p><br><br><h3>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放</h3><br><p>三安光电涨超4.2%，LED芯片需求边际改善。<br><br> | 来源：<code>https://luolishipin.com.cn
+</code></p><br><br><h3>机构+北向合力买入兆易创新1.2亿，存储芯片标的获资金布局</h3><br><p>谷爱凌复出参加世锦赛，斩获自由式滑雪U型场地金牌。<br><br> | 来源：<code>https://luolishipin.net.cn
+</code></p><br><br><h3>白银价格单月上涨12%，贵金属板块集体异动</h3><br><p>海外资管组团调研智能驾驶标的，城市NOA落地节奏披露。<br><br> | 来源：<code>https://luoliwang.com.cn
+</code></p><br><br><h3>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价</h3><br><p>生物育种产业化政策，转基因种业标的走强。<br><br> | 来源：<code>https://luonu-wangzhan.com
+</code></p><br><br><h3>二十国集团峰会召开，达成全球经济治理新共识</h3><br><p>长安汽车放量上涨4.9%，深蓝品牌月销破3万。<br><br> | 来源：<code>https://luotimeinu.com.cn
