@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>黄山暑期单日客流破4万，山顶酒店提前半个月售罄</h3><br><p>国内降准政策落地，大金融板块全线拉升。<br><br> | 来源：<code>https://zh-91dongman.com.cn
+</code></p><br><br><h3>东方财富基金代销回暖，单季净利润同比增60%</h3><br><p>北约峰会发布新战略文件，调整东翼防御部署。<br><br> | 来源：<code>https://zh-baoyu.com.cn
+</code></p><br><br><h3>派能科技户用储能电池技术：全球户用储能龙头的壁垒</h3><br><p>外资持续流入中芯国际，半导体龙头持仓占比突破5%。<br><br> | 来源：<code>https://zh-bytv.com.cn
+</code></p><br><br><h3>长缆科技异动拉升4.3%，高压电缆需求回暖</h3><br><p>海尔智家稳步上行，白电行业格局持续优化。<br><br> | 来源：<code>https://zh-caoliushequ.cn
+</code></p><br><br><h3>产业资本连续3周增持存储芯片龙头，累计增持金额超8亿</h3><br><p>中国中铁一带一路布局：海外基建订单的长期增长逻辑。<br><br> | 来源：<code>https://zh-chengren-yingyuan.com.cn
+</code></p><br><br><h3>高股息板块持续受宠：银行、保险、煤炭的配置价值分析</h3><br><p>全球6G研发进入关键阶段，多国联合推进技术标准制定。<br><br> | 来源：<code>https://zh-chengrenmanhua.com.cn
+</code></p><br><br><h3>国内短视频带火小众景点，超300个县域景点成网红打卡地</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑。<br><br> | 来源：<code>https://zh-dapigu.com.cn
+</code></p><br><br><h3>保利发展央企销售高增，前三季度业绩预增超20%</h3><br><p>全球农业科技市场规模突破3000亿美元，智慧农业普及。<br><br> | 来源：<code>https://zh-diyici.com.cn
+</code></p><br><br><h3>全球区块链产业规模突破万亿美元，Web3.0应用落地加速</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>https://zh-fancha.com.cn
+</code></p><br><br><h3>中国女子摔跤队世锦赛包揽全部金牌，统治力无人能及</h3><br><p>实控人兜底式增持游戏出海龙头，员工响应参与超预期。<br><br> | 来源：<code>https://zh-fanhao.com.cn
+</code></p><br><br><h3>智飞生物异动拉升4.9%，疫苗产品批签发量回升</h3><br><p>大模型在教育测评领域应用，自动批改作文准确率超教师。<br><br> | 来源：<code>https://zh-gaypian.com.cn
+</code></p><br><br><h3>2026年经济运行稳中向好，高质量发展迈出坚实步伐</h3><br><p>挪威经济稳步增长，油气和新能源产业协同发展。<br><br> | 来源：<code>https://zh-guochan-zaixian-guankan.com.cn
+</code></p><br><br><h3>全国南水北调沿线生态廊道建成，水质稳定保持Ⅱ类</h3><br><p>紫金矿业成本优势：全球铜金龙头的低成本矿产资源储备。<br><br> | 来源：<code>https://zh-h-manhua.com.cn
+</code></p><br><br><h3>全国社区运动会覆盖千城，群众家门口参与体育赛事</h3><br><p>中国交建海外订单落地，前三季度业绩预增超18%。<br><br> | 来源：<code>https://zh-haijiaoshequ.com.cn
+</code></p><br><br><h3>全国社会体育指导员超300万人，指导群众科学健身</h3><br><p>调味品开启集体涨价，食品板块盈利迎来修复。<br><br> | 来源：<code>https://zh-jianqing.com.cn
+</code></p><br><br><h3>多模态大模型实现4K视频实时生成，10秒产出高清短视频</h3><br><p>泸州老窖品牌升级：国窖1573的高端化成长路径解析。<br><br> | 来源：<code>https://zh-jiese.com.cn
+</code></p><br><br><h3>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点</h3><br><p>新疆交建放量上涨4.1%，新疆区域基建投资持续升温。<br><br> | 来源：<code>https://zh-jin-man-tiantang.com.cn
+</code></p><br><br><h3>国内多模态大模型实现3D场景实时渲染，元宇宙体验升级</h3><br><p>东方财富放量大涨，券商板块异动激活市场人气。<br><br> | 来源：<code>https://zh-jinmantiantang.com.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：国内创新药龙头的研发投入回报</h3><br><p>中拉经贸合作论坛举办，达成超200亿美元合作协议。<br><br> | 来源：<code>https://zh-jm-comic.com.cn
+</code></p><br><br><h3>中国与中东欧国家合作升级，互联互通项目持续落地</h3><br><p>全国医院预约挂号覆盖率达100%，平均就诊时间缩短至1小时内。<br><br> | 来源：<code>https://zh-jm-tiantang.com.cn
