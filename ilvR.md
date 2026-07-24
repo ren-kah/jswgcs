@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分03秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>比亚迪涨超6.7%，刀片电池外供比例持续提升</h3><br><p>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>别被短期波动洗下车：核心资产的价值需要时间兑现</h3><br><p>大秦铁路异动拉升2.8%，煤炭运输量稳步提升。<br><br> | 来源：<code>www.yuzt.cn
+</code></p><br><br><h3>成渝双城经济圈政策加码，成渝板块标的全线上涨</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>定向降准支持县域金融机构，乡村振兴板块迎来利好</h3><br><p>国产现实题材电视剧收视领跑，多部作品斩获国际奖项。<br><br> | 来源：<code>www.6gt8.cn
+</code></p><br><br><h3>原油价格突破85美元/桶，油气开采板块盈利提升</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>全国文旅智慧平台全覆盖，实现线上预约、导览、投诉一站式服务</h3><br><p>绍兴推出“跟着课本游绍兴”线路，研学游覆盖超百万学生。<br><br> | 来源：<code>www.xinyucai.cn
+</code></p><br><br><h3>基金公司集体到访氢能龙头，燃料电池车推广进度超预期</h3><br><p>上半年全国新能源发电量同比增长35%，占全社会用电量比重超20%。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>海尔智家稳步上行，白电行业格局持续优化</h3><br><p>北向资金连续增持快递物流龙头，单票盈利改善获外资加仓。<br><br> | 来源：<code>www.rlgps.cn
+</code></p><br><br><h3>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨</h3><br><p>机构资金集中买入阳光电源3.8亿，逆变器龙头获机构抱团。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>韦尔股份CIS芯片布局：图像传感器行业的周期与成长</h3><br><p>软件企业所得税优惠延续，国产软件板块异动。<br><br> | 来源：<code>www.btnrl.com
+</code></p><br><br><h3>国内文创产品市场规模破千亿，故宫文创年营收超20亿</h3><br><p>沪深交易所降费，券商经纪业务标的集体上涨。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>天津建投异动拉升2.8%，天津基建投资持续增长。<br><br> | 来源：<code>www.zzwtest.com
+</code></p><br><br><h3>洋河股份渠道改革：白酒企业渠道优化的成功案例解析</h3><br><p>服务贸易创新发展试点，服务贸易板块集体上涨。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>养老金新进PCB龙头，布局AI服务器硬件赛道</h3><br><p>通威股份硅料盈利修复，单季业绩预告环比大增。<br><br> | 来源：<code>www.zzlxgg.com.cn
+</code></p><br><br><h3>天齐锂业触底反弹，锂矿价格企稳带动板块情绪</h3><br><p>中国女子足球闯入世界杯四强，创造历史最佳战绩。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>1年期LPR下调10BP，实体经济融资成本进一步下行</h3><br><p>老旧小区改造升级，家装家居标的全线拉升。<br><br> | 来源：<code>www.geeksuper.cn
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>全面降准叠加定向降息，宽货币向宽信用传导加速。<br><br> | 来源：<code>www.husini.cn
+</code></p><br><br><h3>端侧大模型普及，旗舰手机本地运行70B参数大模型</h3><br><p>医美监管政策优化，医美消费标的全线拉升。<br><br> | 来源：<code>www.ousche.cn
+</code></p><br><br><h3>汽车出口数据亮眼：自主车企、零部件的业绩增量分析</h3><br><p>大模型在电商领域应用，AI生成商品详情页效率提升10倍。<br><br> | 来源：<code>www.cnjinrong.cn
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>超170家机构到访PCB龙头，AI服务器板订单同比翻倍。<br><br> | 来源：<code>www.edu633.cn
