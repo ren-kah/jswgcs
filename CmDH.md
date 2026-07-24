@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分18秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>正泰电器放量上涨3.7%，户用光伏装机量领先</h3><br><p>实控人邀约收购光刻胶标的，溢价40%发起部分要约收购。<br><br> | 来源：<code>https://selunyan.com.cn
+</code></p><br><br><h3>中国平安综合金融版图：保险+银行+投资的协同优势</h3><br><p>天合光能放量上涨5.5%，N型组件渗透率持续提升。<br><br> | 来源：<code>https://semantiantang.com.cn
+</code></p><br><br><h3>出口退税政策优化，出口导向型标的拉升</h3><br><p>北向资金大幅增持比亚迪，AH股同步获外资加仓。<br><br> | 来源：<code>https://semanwu.com.cn
+</code></p><br><br><h3>机构席位大额买入通威股份2.9亿，光伏龙头获长线资金布局</h3><br><p>机构席位大额买入洋河股份6900万，白酒龙头获长线布局。<br><br> | 来源：<code>https://semeimei.com.cn
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>北向资金大额增持中国平安，保险龙头外资持仓创阶段新高。<br><br> | 来源：<code>https://seqingyouxi.com.cn
+</code></p><br><br><h3>全国三北工程六期启动，规划造林超1000万公顷</h3><br><p>实控人溢价20%增持氢能龙头，传递公司价值被低估信号。<br><br> | 来源：<code>https://sesedongmanwang.com.cn
+</code></p><br><br><h3>猪肉价格连续反弹20%，生猪养殖板块迎来趋势性行情</h3><br><p>央行表态保持流动性合理充裕，后续政策工具储备充足。<br><br> | 来源：<code>https://sesemanhua.com.cn
+</code></p><br><br><h3>养老金新进创新药龙头，布局创新管线长期成长逻辑</h3><br><p>卫星互联网星座加速组网，低轨卫星板块全线走强。<br><br> | 来源：<code>https://sesesexsehuwangzhan.cn
+</code></p><br><br><h3>上半年出境游人次突破8000万，跨境旅游全面复苏</h3><br><p>知名私募大手笔增持数字人民币标的，持仓占比突破3%。<br><br> | 来源：<code>https://sesewangzhan.cn
+</code></p><br><br><h3>重庆路桥异动拉升2.4%，区域路桥业务盈利稳定</h3><br><p>铜价创半年新高，铜业上市公司盈利迎来边际改善。<br><br> | 来源：<code>https://sesewangzhan.com.cn
+</code></p><br><br><h3>煤层气开发利用政策，煤层气标的全线拉升</h3><br><p>比亚迪AH股同步走强，量价配合下的交易机会分析。<br><br> | 来源：<code>https://seseyouxi.com.cn
+</code></p><br><br><h3>中航沈飞军机订单饱满，单季业绩预告超预期</h3><br><p>大金重工塔筒出口翻倍，单季业绩预告超预期。<br><br> | 来源：<code>https://sezaixian.cn
+</code></p><br><br><h3>海洋牧场建设规划，海洋渔业板块集体上涨</h3><br><p>云从科技人机协同大模型3.0发布，赋能人机交互场景。<br><br> | 来源：<code>https://sezhongseluntan.cn
+</code></p><br><br><h3>国产动画剧集全网播放量突破300亿，传统文化元素成爆款密码</h3><br><p>上海推出“夜生活节”，夜间商户营业额同比增长60%。<br><br> | 来源：<code>https://shang-yuan.com.cn
+</code></p><br><br><h3>北向资金举牌广告营销龙头，AI营销高增获外资持续流入</h3><br><p>中国男子乒乓球队世乒赛团体夺冠，实现十一连冠伟业。<br><br> | 来源：<code>https://shankou-zhu-li.com.cn
+</code></p><br><br><h3>尿素价格单月上涨9%，化肥板块迎来产品涨价催化</h3><br><p>QFII集中调研宠物食品龙头，海外市场渗透率数据公开。<br><br> | 来源：<code>https://shanliangdenumishu.com.cn
+</code></p><br><br><h3>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%</h3><br><p>锰价上涨8%，锰酸锂材料板块迎来行情。<br><br> | 来源：<code>https://shaofubaijie.com.cn
+</code></p><br><br><h3>互联网平台经济政策回暖，中概股联动标的上涨</h3><br><p>全国马拉松赛事上半年举办超500场，参赛人次突破600万。<br><br> | 来源：<code>https://shengshi-ll-ios.com
+</code></p><br><br><h3>知名私募大手笔增持数字人民币标的，持仓占比突破3%</h3><br><p>海大集团饲料技术优势：水产饲料龙头的研发壁垒。<br><br> | 来源：<code>https://shenshi-youxi.com.cn
+</code></p><br><br><h3>政策性银行加大降息力度，基建项目融资成本大幅下降</h3><br><p>华北高速涨超1.9%，京津冀路网业务稳健。<br><br> | 来源：<code>https://shenshimanhua.com.cn
