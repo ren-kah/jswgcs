@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时23分30秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>亨通光电海洋能源布局：光通信龙头的第二成长曲线</h3><br><p>美的集团股价创年内新高，家电出口数据亮眼。<br><br> | 来源：<code>guoguangjixie.cn
+</code></p><br><br><h3>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%</h3><br><p>复合肥价格上调7%，化肥全产业链盈利优化。<br><br> | 来源：<code>bieyao.cn
+</code></p><br><br><h3>社保基金新进生物育种标的，布局农业科技长期成长</h3><br><p>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆。<br><br> | 来源：<code>zhongyaolu.cn
+</code></p><br><br><h3>QFII新进汽车芯片标的，MCU国产替代获海外机构看好</h3><br><p>城中村改造专项政策，城中村改造标的全线异动。<br><br> | 来源：<code>ykyxz.cn
+</code></p><br><br><h3>天齐锂业涨超5.8%，锂矿自给率优势持续凸显</h3><br><p>全国老年大学体育课程覆盖超千万老人，健康老龄化推进。<br><br> | 来源：<code>mlxtf.cn
+</code></p><br><br><h3>三亚亚特兰蒂斯暑期日均客流超3万，水世界项目一票难求</h3><br><p>海康威视企稳回升，AI安防赛道需求逐步回暖。<br><br> | 来源：<code>tupianqiang.com
+</code></p><br><br><h3>全球教育科技市场规模突破4000亿美元，线上教育持续普及</h3><br><p>超240家机构到访氢能燃料电池标的，商用车推广数据公开。<br><br> | 来源：<code>hsronghua.com
+</code></p><br><br><h3>央行宣布全面降准0.5个百分点，释放长期资金超万亿</h3><br><p>公募基金集中调研储能温控龙头，海外客户拓展引关注。<br><br> | 来源：<code>dygs2b.com
+</code></p><br><br><h3>北汽蓝谷异动拉升5.3%，极狐品牌销量边际改善</h3><br><p>新疆交建一带一路优势：新疆区域基建的长期成长逻辑。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>锂电铜箔价格上涨4%，铜箔龙头盈利边际改善</h3><br><p>天津推出“夜津城”活动，相声演出夜间场次一票难求。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>葛洲坝异动拉升3.4%，水电工程业务持续增长</h3><br><p>饼干产品价格上涨3%，食品细分板块盈利提升。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>海南自贸港封关运作倒计时，海南本地股全线异动</h3><br><p>原油价格突破85美元/桶，油气开采板块盈利提升。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>中国帆船队奥运会夺得金牌，蓝色海洋运动取得重大突破</h3><br><p>赛力斯用户运营优势：华为赋能下的用户体验提升逻辑。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升</h3><br><p>社保基金现身存储模组龙头，AI存储产品出货量超预期。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>京沪高铁路网资产价值：核心高铁线路的长期盈利逻辑</h3><br><p>生物医药产业创新政策，CXO板块全线异动。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>伊朗与沙特深化合作，双边贸易额同比暴涨80%</h3><br><p>北向资金连续加仓隆基绿能，光伏龙头获外资长线布局。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>重庆洪崖洞暑期日均游客量突破25万人次，网红城市持续火爆</h3><br><p>吉利汽车放量上涨5.6%，新能源车型占比突破50%。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>机构资金联手买入北京君正9500万，车载存储龙头获抱团</h3><br><p>宠物食品企业开启新股申购，海外自主品牌占比突破40%。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>炒股到最后拼的是心态：再好的牛股拿不住也是白搭</h3><br><p>义务教育优质均衡创建推进，千个县区通过国家级评估。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>上海建工涨超2.9%，上海城市更新订单爆发</h3><br><p>恒力石化异动拉升3.8%，炼化行业盈利边际改善。<br><br> | 来源：<code>www.michaelyang.cn
