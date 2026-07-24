@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分42秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>西安大唐不夜城暑期日均游客量突破30万人次，夜间文旅火爆</h3><br><p>多地文旅部门推出“先游后付”服务，提升游客消费体验。<br><br> | 来源：<code>https://youyoushipin.com.cn
+</code></p><br><br><h3>多地推出“文旅+农业”融合项目，采摘游订单同比增长80%</h3><br><p>大股东承诺6个月内不减持氢能标的，释放稳定股价信号。<br><br> | 来源：<code>https://yuan-qiansui.com.cn
+</code></p><br><br><h3>美联储降息预期提前落地，黄金价格创历史新高</h3><br><p>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志。<br><br> | 来源：<code>https://yuan-shen-benzi.com.cn
+</code></p><br><br><h3>料酒价格上涨4%，调味品细分板块迎来行情</h3><br><p>全国全民健身日活动覆盖超亿人次，群众体育热情高涨。<br><br> | 来源：<code>https://yuan-shenbenzi.com.cn
+</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>政策性降息支持保障性住房建设，保障房产业链受益。<br><br> | 来源：<code>https://yuan-zhi-kong.com.cn
+</code></p><br><br><h3>理想汽车涨超8.5%，L系列车型月销破4万</h3><br><p>1年期LPR下调5BP，实体经济融资成本稳步下行。<br><br> | 来源：<code>https://yuanfende.com.cn
+</code></p><br><br><h3>全国臭氧浓度同比下降5%，夏季蓝天数量明显增加</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>https://yuankongzhi.com.cn
+</code></p><br><br><h3>洛阳推出“汉服游”配套服务，全城汉服租赁店超千家</h3><br><p>山西汾酒渠道下沉：清香型白酒的全国化深度渗透逻辑。<br><br> | 来源：<code>https://yuanshen-benzi.com.cn
+</code></p><br><br><h3>当升科技涨超5.1%，正极材料海外订单增长</h3><br><p>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热。<br><br> | 来源：<code>https://yuanshenbenziwang.com.cn
+</code></p><br><br><h3>中国中铁一带一路布局：海外基建订单的长期增长逻辑</h3><br><p>飞天茅台批价突破2900元，白酒龙头盈利超预期。<br><br> | 来源：<code>https://yue-pao.cn
+</code></p><br><br><h3>国产光刻机交付突破，半导体设备板块全线大涨</h3><br><p>国电南瑞电网自动化优势：国内电网信息化龙头的价值。<br><br> | 来源：<code>https://yun-sports-pro.com.cn
+</code></p><br><br><h3>比亚迪全产业链布局：从电池到整车的垂直整合优势</h3><br><p>深高速放量上涨2.5%，深圳区域路网资产优质。<br><br> | 来源：<code>https://yunkai-sports-pro.com.cn
+</code></p><br><br><h3>全国城市餐厨垃圾处理能力突破10万吨/日，资源化利用</h3><br><p>全国候鸟栖息地保护网络建成，每年迁徙候鸟超千万只。<br><br> | 来源：<code>https://yunuxinjing.com.cn
+</code></p><br><br><h3>人民币汇率升值至6.7关口，造纸板块汇兑收益大幅增加</h3><br><p>伊利股份涨超3.2%，乳制品行业需求回暖。<br><br> | 来源：<code>https://yuputuan.com.cn
+</code></p><br><br><h3>双汇发展肉制品盈利修复，前三季度业绩预增超20%</h3><br><p>酱油价格单月上涨5%，调味品龙头盈利弹性释放。<br><br> | 来源：<code>https://yuputuanzhi.com.cn
+</code></p><br><br><h3>东方财富放量大涨，券商异动下的人气激活信号</h3><br><p>黄山暑期游客量突破250万人次，山岳景区预约制度优化体验。<br><br> | 来源：<code>https://zaixian-boduoyejieyi.com.cn
+</code></p><br><br><h3>2026年全球经济增速达3.2%，实现温和复苏稳步增长</h3><br><p>工业软件扶持政策出台，工业软件标的全线拉升。<br><br> | 来源：<code>https://zaixian-guankan.com.cn
+</code></p><br><br><h3>上半年全国文化产业营收同比增长14%，文旅融合加速</h3><br><p>上半年全国城镇新增就业780万人，完成全年目标的70%。<br><br> | 来源：<code>https://zaixian-majiangpai.com.cn
+</code></p><br><br><h3>全国乒乓球业余赛参赛人数破百万，国球群众基础深厚</h3><br><p>外资机构席位净买入恒瑞医药2.4亿，创新药龙头获外资加仓。<br><br> | 来源：<code>https://zaixian91.cn
+</code></p><br><br><h3>云从科技人机协同大模型3.0发布，赋能人机交互场景</h3><br><p>建立自己的交易体系：没有规则的操作，最终只会被情绪带着走。<br><br> | 来源：<code>https://zaixiancheng.com.cn
