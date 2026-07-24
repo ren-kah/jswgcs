@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分01秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>铜价创半年新高，铜业上市公司盈利迎来边际改善</h3><br><p>国内大模型企业估值破万亿，30家企业跻身独角兽行列。<br><br> | 来源：<code>https://new-mitaoyingshi.com.cn
+</code></p><br><br><h3>接受市场的不完美：不要试图精准抄底逃顶，赚自己认知内的钱</h3><br><p>存款利率市场化调整机制优化，银行负债端成本进一步压降。<br><br> | 来源：<code>https://new-mitaozaixian.com.cn
+</code></p><br><br><h3>海南高速异动拉升2.0%，海南旅游带动车流量回升</h3><br><p>中国毽球队世界杯包揽全部冠军，民间运动走向世界舞台。<br><br> | 来源：<code>https://new-mogu.com.cn
+</code></p><br><br><h3>高管团队集体增持低空飞行器标的，合计增持超7000万</h3><br><p>全国学生体质健康达标率提升至92%，青少年身体素质增强。<br><br> | 来源：<code>https://new-mogushipin.com.cn
+</code></p><br><br><h3>海尔智家稳步上行，慢牛趋势下的持仓节奏</h3><br><p>泸州老窖国窖批价上行，单季业绩预告超预期。<br><br> | 来源：<code>https://new-muguashipin.com.cn
+</code></p><br><br><h3>机器人赛道持续升温：核心零部件、整机制造的投资机会</h3><br><p>储能温控龙头开启新股申购，海外客户覆盖全球头部厂商。<br><br> | 来源：<code>https://new-nencaoyingyuan.com.cn
+</code></p><br><br><h3>三安光电化合物半导体布局：LED+碳化硅的长期空间</h3><br><p>工业大模型落地万座工厂，生产效率平均提升30%。<br><br> | 来源：<code>https://new-sky-sports.com.cn
+</code></p><br><br><h3>大模型在气象领域应用，天气预报准确率提升15%</h3><br><p>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算。<br><br> | 来源：<code>https://new-tiantiandongman.com.cn
+</code></p><br><br><h3>建立自己的交易体系：没有规则的操作，最终只会被情绪带着走</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>https://new-wuyeyingyuan.com.cn
+</code></p><br><br><h3>2026年美丽中国建设成效显著，绿色发展底色更加鲜明</h3><br><p>承德避暑山庄暑期日均客流超6万，皇家文旅体验受追捧。<br><br> | 来源：<code>https://new-xingfubao.cn
+</code></p><br><br><h3>万华化学涨超3.5%，化工品价格企稳回升</h3><br><p>广州马拉松开跑，参赛选手破3万全马完赛率创新高。<br><br> | 来源：<code>https://new-xingkongyingshi.com.cn
+</code></p><br><br><h3>机构专用席位净买入许继电气5800万，特高压龙头获加仓</h3><br><p>全球跨境旅游人次上半年突破7亿，旅游业全面复苏。<br><br> | 来源：<code>https://new-yazhoujingpin.com.cn
+</code></p><br><br><h3>故宫博物院暑期门票秒空，日均接待游客突破8万人次</h3><br><p>地下综合管廊规划，地下管网标的全线异动。<br><br> | 来源：<code>https://new-yazhouzaixian.com.cn
+</code></p><br><br><h3>创新药医保谈判落地，创新药板块迎来情绪修复</h3><br><p>网络游戏管理新规落地，游戏板块情绪修复上涨。<br><br> | 来源：<code>https://new-yinghuashipin.com.cn
+</code></p><br><br><h3>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径</h3><br><p>成都推出“文旅+美食”线路，带动餐饮营收同比增长50%。<br><br> | 来源：<code>https://new-zaixianguankan.com.cn
+</code></p><br><br><h3>恒瑞医药创新药管线：研发投入进入收获期的业绩展望</h3><br><p>恩捷股份异动拉升5.4%，锂电池隔膜份额持续提升。<br><br> | 来源：<code>https://ng-nangong-download.com
+</code></p><br><br><h3>机构+北向合力买入新希望6700万，养殖标的获资金布局</h3><br><p>政策性降息支持保障性住房建设，保障房产业链受益。<br><br> | 来源：<code>https://nianqingde.com.cn
+</code></p><br><br><h3>知名私募调研钙钛矿设备标的，核心设备交付周期缩短</h3><br><p>基金公司集体到访氢能龙头，燃料电池车推广进度超预期。<br><br> | 来源：<code>https://ningmeng-zh.com.cn
+</code></p><br><br><h3>容百科技高镍正极技术：锂电高镍化趋势下的龙头受益</h3><br><p>百亿级机构组团到访低空经济龙头，低空试飞进展获披露。<br><br> | 来源：<code>https://niunaibaozangku.com.cn
+</code></p><br><br><h3>中国橄榄球队首次晋级亚运会四强，项目普及度快速提升</h3><br><p>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%。<br><br> | 来源：<code>https://niunaidongmanku.com.cn
