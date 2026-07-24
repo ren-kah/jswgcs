@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时08分13秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>1年期LPR下调降低企业短期融资成本，经营活力提升</h3><br><p>温氏股份放量上涨4.2%，养殖业务盈利持续修复。<br><br> | 来源：<code>https://heisimeinubeicao.com.cn
+</code></p><br><br><h3>坚果产品价格上涨5%，休闲食品龙头盈利改善</h3><br><p>AI智能写作工具普及，内容创作者产出效率提升2倍。<br><br> | 来源：<code>https://henhenai.com.cn
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局</h3><br><p>中国男子举重队世锦赛打破5项世界纪录，统治力依旧。<br><br> | 来源：<code>https://henhenlu.com.cn
+</code></p><br><br><h3>10年期国债收益率下行，保险板块配置压力边际缓解</h3><br><p>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑。<br><br> | 来源：<code>https://hg-sports-hub.com.cn
+</code></p><br><br><h3>北向资金举牌工业机器人龙头，外资持仓创历史新高</h3><br><p>药明康德MACD金叉，技术指标共振带来布局机会。<br><br> | 来源：<code>https://hg-sports-net.com.cn
+</code></p><br><br><h3>全国城市篮球联赛举办，覆盖百城参赛队伍破万支</h3><br><p>数据要素政策落地，数据确权板块全线上涨。<br><br> | 来源：<code>https://hg-sports-pro.com.cn
+</code></p><br><br><h3>大股东耗资7亿增持游戏出海龙头，回购用于员工持股计划</h3><br><p>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。<br><br> | 来源：<code>https://hitozuma.com.cn
+</code></p><br><br><h3>上合组织峰会召开，新增3个成员国组织规模进一步扩大</h3><br><p>新能源汽车购置税减免延期，整车板块集体走强。<br><br> | 来源：<code>https://hman.com.cn
+</code></p><br><br><h3>高管团队集体调研后增持冷链物流标的，合计增持超8000万</h3><br><p>民宿行业合规化推进，全国星级民宿数量突破2万家。<br><br> | 来源：<code>https://hmanhua.com.cn
+</code></p><br><br><h3>宁德时代异动拉升6.2%，海外储能项目持续落地</h3><br><p>广州马拉松开跑，参赛选手破3万全马完赛率创新高。<br><br> | 来源：<code>https://hong-taoshipin.com.cn
+</code></p><br><br><h3>亿纬锂能换手率超3%，量能放大下的资金动向解析</h3><br><p>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%。<br><br> | 来源：<code>https://hongse-shamo.com.cn
+</code></p><br><br><h3>全国戒烟服务门诊覆盖所有三甲医院，吸烟率持续下降</h3><br><p>北向资金大额扫货安琪酵母5500万，酵母龙头获外资流入。<br><br> | 来源：<code>https://hongtao-shipin.com.cn
+</code></p><br><br><h3>AIGC内容监管细则出台，AI内容标的集体拉升</h3><br><p>通威股份全产业链成本控制：光伏硅料环节的盈利韧性。<br><br> | 来源：<code>https://hongtao-shipinwangyeban.com.cn
+</code></p><br><br><h3>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮</h3><br><p>外资单日扫货药明康德18亿，CXO赛道获外资集中流入。<br><br> | 来源：<code>https://hongtao-shipinzaixian.com.cn
+</code></p><br><br><h3>金风科技风电整机技术：国内风电龙头的技术迭代路径</h3><br><p>国内音乐节市场爆发，上半年演出场次同比增长150%。<br><br> | 来源：<code>https://hongtao-tv.com.cn
+</code></p><br><br><h3>河北建工涨超2.7%，雄安新区基建订单饱满</h3><br><p>海天味业调味品动销超预期，单季业绩预告超预期。<br><br> | 来源：<code>https://hongtao-yingyuan.com.cn
+</code></p><br><br><h3>游资知名席位联手买入中微公司1.3亿，刻蚀设备标的追捧</h3><br><p>安凯客车涨超4.3%，客车出口订单同比增长。<br><br> | 来源：<code>https://hongtaoshipinguanwang.com.cn
+</code></p><br><br><h3>国内大模型安全检测平台上线，为所有备案模型提供合规检测</h3><br><p>全国中华秋沙鸭种群数量突破3000只，河流生态健康标志。<br><br> | 来源：<code>https://hongtaoshipinmianfeizaixianguankan.com.cn
+</code></p><br><br><h3>东方盛虹放量上涨3.6%，EVA树脂需求持续向好</h3><br><p>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大。<br><br> | 来源：<code>https://hongtaoshipinvip.com.cn
+</code></p><br><br><h3>中国排球队世界联赛夺冠，三大球集体项目重回巅峰</h3><br><p>家电以旧换新政策加码，白电板块集体反弹。<br><br> | 来源：<code>https://hongtaoshipinyandex.com.cn
