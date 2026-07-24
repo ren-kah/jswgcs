@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时22分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>实控人溢价15%增持碳纤维企业，传递长期发展信心</h3><br><p>苹果AI服务正式上线，苹果产业链标的集体反弹。<br><br> | 来源：<code>whutzhaotian.cn
+</code></p><br><br><h3>海南高速异动拉升2.0%，海南旅游带动车流量回升</h3><br><p>稀土永磁政策红利：行业供需格局优化下的投资机会。<br><br> | 来源：<code>www.asiaillustrator.com
+</code></p><br><br><h3>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏</h3><br><p>天齐锂业触底反弹，超跌后的修复空间测算。<br><br> | 来源：<code>www.dearain.cn
+</code></p><br><br><h3>全国职业体育俱乐部数量超2000家，联赛体系覆盖全项目</h3><br><p>半导体产业扶持基金落地，大基金二期标的全线拉升。<br><br> | 来源：<code>www.zhuweiguoji.cn
+</code></p><br><br><h3>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓</h3><br><p>全球人工智能芯片市场规模突破1500亿美元，算力需求暴涨。<br><br> | 来源：<code>www.dg-hhjx.cn
+</code></p><br><br><h3>山西汾酒渠道下沉：清香型白酒的全国化深度渗透逻辑</h3><br><p>硅片价格单月上涨5%，光伏制造环节盈利边际改善。<br><br> | 来源：<code>www.gzsyd.cn
+</code></p><br><br><h3>长安汽车新能源盈利转正，单季净利润同比增200%</h3><br><p>北向资金单日扫货贵州茅台8亿，外资龙头标的持仓提升。<br><br> | 来源：<code>www.edubee.cn
+</code></p><br><br><h3>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>www.tlgsb.cn
+</code></p><br><br><h3>养老金新进AI芯片设计标的，布局大模型推理芯片赛道</h3><br><p>AI图像识别技术突破，缺陷检测准确率超99.5%。<br><br> | 来源：<code>www.le-service-divin.com
+</code></p><br><br><h3>赣粤高速涨超2.3%，江西区域车流量稳步提升</h3><br><p>控股股东耗资5.2亿增持智慧交通标的，回购股份用于股权激励。<br><br> | 来源：<code>www.cztxwl.cn
+</code></p><br><br><h3>国内短视频带火小众景点，超300个县域景点成网红打卡地</h3><br><p>社保基金新进锂电回收龙头，布局循环经济高景气赛道。<br><br> | 来源：<code>www.archicourse.cn
+</code></p><br><br><h3>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持</h3><br><p>中国滑板队奥运会夺得银牌，新兴项目快速崛起。<br><br> | 来源：<code>www.husini.cn
+</code></p><br><br><h3>养老金现身特高压龙头调研，海外工程落地节奏引热议</h3><br><p>中国神华创阶段新高2.8%，高股息属性持续获资金追捧。<br><br> | 来源：<code>www.cnjinrong.cn
+</code></p><br><br><h3>企业融资成本创历史新低，制造业投资增速回升</h3><br><p>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期。<br><br> | 来源：<code>www.60gm.cn
+</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增。<br><br> | 来源：<code>www.gdlyh.cn
+</code></p><br><br><h3>外资资管集中调研中药配方颗粒标的，医院端渗透率超预期</h3><br><p>游资顶级席位联手买入中芯国际7亿，半导体龙头获热捧。<br><br> | 来源：<code>www.feiyiban.cn
+</code></p><br><br><h3>公募基金集中调研电力信息化龙头，虚拟电厂订单翻倍</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>www.zygxlt.com
+</code></p><br><br><h3>陕西建工异动拉升3.5%，西北基建订单持续落地</h3><br><p>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒。<br><br> | 来源：<code>www.xiangleiboy.com
+</code></p><br><br><h3>保险资管扎堆调研航空发动机标的，量产交付进度引关注</h3><br><p>碳排放权交易市场扩容，碳交易标的全线异动。<br><br> | 来源：<code>www.cameey.com
+</code></p><br><br><h3>北向资金大额增持美的集团，家电龙头外资持仓创历史新高</h3><br><p>国产悬疑小说出海热销，海外读者追捧中国推理故事。<br><br> | 来源：<code>www.vin114.com
