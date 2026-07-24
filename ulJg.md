@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>QFII集中调研宠物食品龙头，海外市场渗透率数据公开</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>https://chengrenyingyuanwang.com.cn
+</code></p><br><br><h3>5年期以上LPR大幅下调20BP，地产链板块全线异动</h3><br><p>中国女子排球队奥运资格赛全胜，直通巴黎奥运会。<br><br> | 来源：<code>https://chengrenzaixian-zh.com.cn
+</code></p><br><br><h3>北向资金大额扫货恩捷股份1.4亿，隔膜龙头获外资流入</h3><br><p>企业中长期贷款利率创历史新低，制造业资本开支回升。<br><br> | 来源：<code>https://chengrenzaixian.com.cn
+</code></p><br><br><h3>科技成长行情延续：AI算力、半导体、光模块的景气度排序</h3><br><p>东方财富基金代销回暖，单季净利润同比增60%。<br><br> | 来源：<code>https://chengrenzhibo-zh.com.cn
+</code></p><br><br><h3>猪肉价格触底反弹，生猪养殖标的集体走强</h3><br><p>地方国资战略入股卫星互联网标的，助力星座组网建设。<br><br> | 来源：<code>https://chengrenzhibo.cn
+</code></p><br><br><h3>恒力石化异动拉升3.8%，炼化行业盈利边际改善</h3><br><p>农业机械化推广政策，农机装备板块全线异动。<br><br> | 来源：<code>https://chi-gua-hei-liao.com.cn
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>风控永远放在第一位：先保住本金，再谈盈利空间。<br><br> | 来源：<code>https://chi-gua-shipin.com.cn
+</code></p><br><br><h3>中兴通讯沿趋势线上行，通信板块的轮动机会</h3><br><p>中国神华创阶段新高2.8%，高股息属性持续获资金追捧。<br><br> | 来源：<code>https://chiguawang.org.cn
+</code></p><br><br><h3>荷兰经济避免衰退，服务业支撑经济稳定增长</h3><br><p>人工智能与大模型应用（100条）。<br><br> | 来源：<code>https://chong-tian.com.cn
+</code></p><br><br><h3>中国自行车队世锦赛夺得金牌，场地自行车项目实现突破</h3><br><p>中国排球队世界联赛夺冠，三大球集体项目重回巅峰。<br><br> | 来源：<code>https://chongshengluolidao.com.cn
+</code></p><br><br><h3>鸿蒙生态持续升温：相关产业链标的受益顺序解析</h3><br><p>暑期高铁游订单同比增长50%，"坐着高铁看中国"成潮流。<br><br> | 来源：<code>https://chuanmei-zaixianguankan.com.cn
+</code></p><br><br><h3>2026年全国体育产业总规模突破4万亿，全民健身蔚然成风</h3><br><p>社保基金新进锂电回收龙头，布局循环经济高景气赛道。<br><br> | 来源：<code>https://chuanmei91.com.cn
+</code></p><br><br><h3>全国冰雪运动参与人数突破3亿，带动冰雪产业规模超8000亿</h3><br><p>天顺风能风电塔架布局：风电零部件龙头的全球份额。<br><br> | 来源：<code>https://chuanmeimadou.cn
+</code></p><br><br><h3>江特电机触底反弹5.9%，锂盐价格企稳回升</h3><br><p>国内AI人才培养体系完善，高校新增AI相关专业超千个。<br><br> | 来源：<code>https://chuanmeizaixianguankan.com.cn
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>https://chuniaoapp.cn
+</code></p><br><br><h3>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位</h3><br><p>金龙汽车海外客车出口：客车行业龙头的海外拓展逻辑。<br><br> | 来源：<code>https://chutianbenzi.com.cn
+</code></p><br><br><h3>基金公司集体到访机器人控制器标的，国产控制器市占率提升</h3><br><p>暑期托管服务全面推行，免费提供兴趣课程和作业辅导。<br><br> | 来源：<code>https://chuyindao.com.cn
+</code></p><br><br><h3>通威股份渔光互补模式：农业+新能源的协同发展路径</h3><br><p>三一重工数字化转型：工程机械龙头的效率提升路径。<br><br> | 来源：<code>https://clshequ.cn
+</code></p><br><br><h3>国内大模型创业融资额破千亿，资本持续加码赛道</h3><br><p>大模型轻量化部署方案成熟，中小企业接入成本下降90%。<br><br> | 来源：<code>https://clsq.cn
+</code></p><br><br><h3>房贷利率动态调整机制优化，重点城市房贷利率进一步下行</h3><br><p>陕西煤业资源禀赋优势：煤炭龙头的业绩稳定性解析。<br><br> | 来源：<code>https://club91.cn
