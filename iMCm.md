@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 00时07分33秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金大额扫货赣锋锂业2.6亿，锂矿龙头获外资流入</h3><br><p>中非合作论坛新举措落地，千个合作项目集中启动。<br><br> | 来源：<code>https://xing-bake.com.cn
+</code></p><br><br><h3>机构专用席位净买入泸州老窖1.9亿，白酒标的获长线资金加仓</h3><br><p>美欧贸易谈判达成协议，解决钢铁铝关税争端。<br><br> | 来源：<code>https://xing-daohang.cn
+</code></p><br><br><h3>良渚古城遗址新发现大型水利工程，实证5000年文明史</h3><br><p>中国曲棍球队亚运会夺冠，集体球类项目多点开花。<br><br> | 来源：<code>https://xing-fubaodaohang.cn
+</code></p><br><br><h3>知名私募调研光伏N型电池标的，TOPCon电池转换效率突破26%</h3><br><p>实控人溢价25%增持电力现货交易标的，传递价值低估信号。<br><br> | 来源：<code>https://xing-sheng-jiao.com.cn
+</code></p><br><br><h3>美联储连续降息后美元走弱，原油价格迎来趋势性反弹</h3><br><p>全国二手车交易量上半年突破1000万辆，流通市场活跃。<br><br> | 来源：<code>https://xingbachuanmei.com.cn
+</code></p><br><br><h3>全球区块链产业规模突破万亿美元，Web3.0应用落地加速</h3><br><p>美联储开启降息周期，人民币汇率迎来趋势性升值。<br><br> | 来源：<code>https://xingbakeguanwang.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>全球生物医药市场规模突破1.8万亿美元，创新药研发加速。<br><br> | 来源：<code>https://xingbakezaixianguankan.cn
+</code></p><br><br><h3>北向资金大额增持五粮液，白酒龙头外资持仓环比提升</h3><br><p>养老金新进虚拟电厂标的，首次布局电力信息化赛道。<br><br> | 来源：<code>https://xingbashequ.cn
+</code></p><br><br><h3>5年期LPR下调带动房企开发贷利率下行，房企盈利改善</h3><br><p>数据要素政策落地，数据确权板块全线上涨。<br><br> | 来源：<code>https://xingdaohang.cn
+</code></p><br><br><h3>头部券商调研固态电池标的，下一代技术落地时间表曝光</h3><br><p>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产。<br><br> | 来源：<code>https://xingfu-bao.cn
+</code></p><br><br><h3>周期品沿趋势上行：黄金、有色、钢铁的业绩弹性对比</h3><br><p>东方财富用户粘性：互联网金融平台的流量沉淀逻辑。<br><br> | 来源：<code>https://xingfu-baodaohang.cn
+</code></p><br><br><h3>人民币汇率阶段性贬值，出口导向型标的异动</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>https://xingfu-shenghuo.cn
+</code></p><br><br><h3>醋产品价格上调6%，食醋板块盈利改善</h3><br><p>洽洽食品涨超3.4%，坚果业务收入增速回升。<br><br> | 来源：<code>https://xingfubao.net.cn
+</code></p><br><br><h3>普惠小微贷款利率进一步下行，中小微企业盈利改善</h3><br><p>全国绿色电力消费占比达28%，工业绿电使用比例大幅提升。<br><br> | 来源：<code>https://xingfubaoliulianshipin.cn
+</code></p><br><br><h3>洽洽食品涨超3.4%，坚果业务收入增速回升</h3><br><p>料酒价格上涨4%，调味品细分板块迎来行情。<br><br> | 来源：<code>https://xingfubaoxiazai.cn
+</code></p><br><br><h3>鸡肉价格单月上涨15%，白羽鸡板块盈利弹性释放</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>https://xingfudaohang.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：动力电池+储能双轮驱动成长</h3><br><p>苏州园林暑期游客量突破150万人次，江南古典园林游受青睐。<br><br> | 来源：<code>https://xingfushedaohang.cn
+</code></p><br><br><h3>养老金新进创新药龙头，布局创新管线长期成长逻辑</h3><br><p>海康威视AI转型：从安防龙头到AIoT巨头的成长路径。<br><br> | 来源：<code>https://xingkong-wuxian.com.cn
+</code></p><br><br><h3>原油价格突破85美元/桶，油气开采板块盈利提升</h3><br><p>海外资管组团调研光伏逆变器标的，海外市占率突破30%。<br><br> | 来源：<code>https://xingkongchuanmeixianglingdezuopin.com.cn
+</code></p><br><br><h3>汉缆股份输配电布局：国内电缆行业的龙头成长路径</h3><br><p>游资顶级席位打板北方华创2.1亿，半导体设备标的获热炒。<br><br> | 来源：<code>https://xingkongchuanmeizaixianguankan.com.cn
