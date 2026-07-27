@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分17秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>需求侧响应政策落地，电力营销板块集体上涨。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>工业大模型落地万座工厂，生产效率平均提升30%</h3><br><p>全国地表水优良水体比例达89%，黑臭水体基本消除。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>城市漫步Citywalk成新潮流，相关搜索量同比暴涨300%</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>全国垃圾分类覆盖率达92%，资源化利用率提升至38%</h3><br><p>铜价创半年新高，铜业上市公司盈利迎来边际改善。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>北向资金连续加仓东方财富，互联网券商获外资持续流入</h3><br><p>沃森生物疫苗管线布局：创新疫苗龙头的研发投入回报。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>基金公司集体到访消费电子龙头，苹果新品备货量曝光</h3><br><p>央行表态保持流动性合理充裕，后续政策工具储备充足。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>恒力石化炼化盈利修复，前三季度业绩预增超35%</h3><br><p>华域汽车涨超3.9%，汽车零部件龙头业绩超预期。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>天顺风能异动拉升4.6%，风电塔架订单高增</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>一带一路订单释放：中字头基建的估值重塑空间解析</h3><br><p>河南卫视中国节日系列节目全网播放量突破200亿次。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>京东言犀大模型供应链版上线，助力电商降本增效</h3><br><p>大模型在环保领域应用，污染源识别准确率超96%。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>人工智能与大模型应用（100条）</h3><br><p>丹麦经济稳健增长，风电产业全球领先。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>央行逆回购操作利率下调，短期资金面维持宽松</h3><br><p>隆基绿能单季盈利超百亿，光伏龙头业绩超预期。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点</h3><br><p>机构资金集中买入航发动力1.8亿，军工龙头获机构抱团。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>中国女子排球队奥运资格赛全胜，直通巴黎奥运会</h3><br><p>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>北向资金举牌人形机器人标的，持股比例首次突破5%红线</h3><br><p>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>机构席位大额买入德业股份5300万，储能龙头获长线布局</h3><br><p>全国武夷山国家公园生态监测系统建成，生物多样性数据实时采集。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>LPR非对称下调，银行净息差压力边际缓解</h3><br><p>国铁集团旗下标的异动，铁路改革预期持续升温。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>长缆科技高压电缆技术：电网设备细分龙头的壁垒解析</h3><br><p>西安兵马俑暑期日均客流超7万，智慧分流系统提升游览体验。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>硅锰价格单月上涨9%，铁合金板块盈利改善</h3><br><p>知名私募大手笔增持汽车轻量化标的，持仓占比突破4%。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>上半年全国医药制造业利润同比增长13%，创新药贡献突出。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>电阻产品价格上调4%，被动元件板块迎来行情</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期。<br><br> | 来源：<code>www.hmmanhua.com
