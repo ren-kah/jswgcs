@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分53秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>贵州暑期游订单破4000万，“村超”带动全县文旅收入翻倍</h3><br><p>全国演出市场线下消费人次破亿，周边产品营收占比提升。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>全国三北工程六期启动，规划造林超1000万公顷</h3><br><p>实控人邀约收购家电出海龙头，溢价30%发起全面要约。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>全国中华白海豚种群数量突破5000头，近海生态持续改善。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>秦始皇陵兵马俑新坑发掘启动，将揭开秦代军阵更多秘密</h3><br><p>全国美术馆年展览超2万场，艺术惠民覆盖千万群众。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>游资知名席位联手买入中远海控7500万，集运标的获追捧</h3><br><p>外资机构席位净买入中国交建5700万，基建龙头获外资加仓。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>疫情新变种出现，医药防护板块集体走强</h3><br><p>数据要素政策落地，数据确权板块全线上涨。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>实控人兜底式增持固态电池企业，员工响应参与比例超90%</h3><br><p>北京环球影城暑期单日客流破5万，周边酒店一房难求。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升</h3><br><p>海外对冲基金组团调研白酒区域龙头，省外扩张增速曝光。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松</h3><br><p>国产动画剧集全网播放量突破300亿，传统文化元素成爆款密码。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>上汽集团海外市场布局：传统车企出口的长期增长逻辑</h3><br><p>北向资金连续5日加仓贵州茅台，持仓占比创历史新高。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>百亿私募组团调研固态电解质企业，实验室数据突破行业阈值</h3><br><p>A股总市值突破90万亿元，资本市场改革红利持续释放。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>主题乐园暑期游客量突破1亿人次，IP衍生消费持续增长</h3><br><p>厄尔尼诺现象加剧，农业抗旱标的全线走强。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>1年期LPR下调降低企业短期融资成本，经营活力提升</h3><br><p>泸州老窖品牌梯队建设：国窖+特曲的全价格带覆盖。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>超220家机构到访AI教育龙头，付费用户规模环比大增</h3><br><p>千兆城市建设全覆盖，光通信板块走强。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>万科A异动拉升，地产链反弹的关键位与风控思路</h3><br><p>华为智选新车型发布，相关合作车企单日大涨。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>大金重工放量上涨5.7%，风电塔筒全球份额领先</h3><br><p>国家版本馆全部建成开放，典藏中华文脉珍贵资源。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>中医药振兴发展规划，中药全板块集体上涨。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>良渚古城遗址新发现大型水利工程，实证5000年文明史</h3><br><p>头部券商到访调味品龙头，渠道库存去化周期数据披露。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>招商银行零售银行优势：国内零售银行龙头的经营质量</h3><br><p>成都马拉松开跑，赛道串联城市核心景点成网红赛事。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>OpenAI发布多模态大模型，AI应用板块集体异动</h3><br><p>全国塑料污染治理专项行动推进，一次性塑料制品减量30%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>瑞典经济走出负增长，科技产业拉动复苏</h3><br><p>游资知名席位联手买入中际旭创5亿，光模块龙头获热炒。<br><br> | 来源：<code>www.nimendong.com
