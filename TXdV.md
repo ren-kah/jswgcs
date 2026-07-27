@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>恒瑞医药创新药管线：国内创新药龙头的研发投入回报</h3><br><p>多地出台文旅人才扶持政策，引进超万名文旅行业专业人才。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>伊朗与沙特深化合作，双边贸易额同比暴涨80%</h3><br><p>全球半导体产业周期复苏，销售额同比增长18%创历史新高。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>10年期国债收益率下行，保险板块配置压力边际缓解</h3><br><p>焦炭价格开启第五轮提涨，焦化板块盈利迎来改善。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>暑期高铁游订单同比增长50%，"坐着高铁看中国"成潮流</h3><br><p>暑期电影票房突破120亿，国产影片包揽票房前十。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度</h3><br><p>苏州推出“姑苏八点半”升级活动，夜间消费场景拓展至全域。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>大金重工塔筒出口翻倍，单季业绩预告超预期</h3><br><p>极端高温天气来袭，电力运营板块集体拉升。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>浙江建投异动拉升4.7%，浙江共同富裕区基建加码</h3><br><p>招商银行零售银行优势：国内零售银行龙头的经营质量。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>德业股份异动拉升6.8%，储能逆变器盈利超预期</h3><br><p>世界大学排名发布，清华北大首次双双跻身全球前十。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>国际黄金价格回升至2100美元/盎司，避险需求再度升温</h3><br><p>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧</h3><br><p>多地景区推出免票政策，国有A级景区免票覆盖超300家。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%</h3><br><p>桂林山水暑期游客量突破400万人次，经典景区持续焕发活力。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>国产科幻小说海外获奖，中国想象力走向全球读者。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>全国三北工程六期启动，规划造林超1000万公顷</h3><br><p>荷兰经济避免衰退，服务业支撑经济稳定增长。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>机构资金联手买入北京君正9500万，车载存储龙头获抱团</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>地方国资战略入股汽车轻量化标的，助力一体化压铸产能释放</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>西湖暑期游客量突破600万人次，免费景区持续释放民生红利</h3><br><p>全国红色旅游暑期人次破3亿，年轻人占比超60%。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>蒙牛乳业低温奶布局：乳制品行业第二增长曲线解析</h3><br><p>全国海洋生态环境质量稳中向好，一类海水比例达78%。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>天然气价格季节性上涨15%，燃气运营板块迎来行情</h3><br><p>北向资金单日买入隆平高科5900万，种业龙头获外资流入。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>全面降准0.5个百分点，银行信贷投放能力大幅提升</h3><br><p>中超联赛场均上座人数突破2.5万，球市全面回暖。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>重庆马拉松开跑，3万跑者体验山城赛道赛事热度创新高</h3><br><p>大模型在文创领域应用，AI生成剧本、音乐成行业常态。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>箱板纸价格上涨5%，包装产业链盈利改善</h3><br><p>上半年全国汽车出口突破230万辆，连续3年位居全球第一。<br><br> | 来源：<code>www.qzu.zj.cn
