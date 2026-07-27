@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分55秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%</h3><br><p>电解铝价格突破2万元/吨，铝业上市公司盈利弹性释放。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>1年期LPR下调10BP，实体经济融资成本进一步下行</h3><br><p>1年期LPR下调降低企业短期融资成本，经营活力提升。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>镁价单月上涨18%，镁合金板块迎来产品涨价行情</h3><br><p>全国重点流域水生态环境保护规划落地，治理投入超万亿元。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>车载激光雷达企业登陆科创板，量产交付进度超市场预期</h3><br><p>电竞入亚成绩亮眼，电竞游戏产业链标的拉升。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>养老金新进车载芯片龙头，布局车规级半导体赛道</h3><br><p>社保基金大幅加仓创新器械标的，单季度持仓增幅超50%。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>AI数字人直播常态化，超十万直播间启用AI虚拟主播。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>多地优化楼市限购政策，取消二环外住房限购限制</h3><br><p>保险资管举牌机器人减速器标的，核心零部件获机构重仓。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>量子计算原型机新突破，量子科技板块集体拉升</h3><br><p>中国中铁放量上涨3.0%，一带一路订单同比翻倍。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>美联储降息25BP，中概股集体暴涨带动A股联动</h3><br><p>全国体育消费规模上半年突破8000亿元，运动装备销量暴涨。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>养老金新进AI芯片设计标的，布局大模型推理芯片赛道</h3><br><p>万科A地产行业格局：龙头房企的抗风险能力与复苏空间。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>隆平高科转基因优势：种业商业化政策放开下的龙头受益</h3><br><p>头部券商到访汽车座椅龙头，新势力车企订单占比突破50%。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>中国交建涨超3.2%，港口航道业务优势凸显</h3><br><p>亨通光电海缆业务放量，前三季度业绩预增超45%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>长安汽车涨停封板，自主车企销量超预期引爆行情</h3><br><p>别把运气当成能力：短期靠运气赚的钱，迟早会凭实力亏回去。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>海尔智家高端化布局：白电龙头的品牌溢价能力</h3><br><p>企业中长期贷款利率创历史新低，制造业资本开支回升。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>中国男子击剑队世锦赛团体夺冠，重回世界顶尖行列</h3><br><p>长鑫存储DDR5产能释放，内存芯片标的集体上涨。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>农产品深加工扶持政策，农产品加工标的全线拉升。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>机构专用席位净买入容百科技8800万，高镍正极龙头加仓</h3><br><p>北方稀土异动拉升，稀土永磁行业供需格局优化。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>贵州暑期游客量突破7000万人次，山地旅游品牌影响力扩大</h3><br><p>中际旭创再创历史新高，800G光模块份额超70%。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>券商研究所扎堆调研车载芯片龙头，车规级认证进度超预期</h3><br><p>社保基金新进汽车座椅龙头，布局汽车轻量化赛道。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>招商银行股价修复，银行板块高股息属性获资金青睐</h3><br><p>家电出口超预期：白电、厨电的海外市场增量空间。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>全国农产品网络零售额上半年突破3500亿元，助力乡村振兴</h3><br><p>中部地区崛起新政策落地，打造先进制造业增长极。<br><br> | 来源：<code>www.kayhaerland.com
