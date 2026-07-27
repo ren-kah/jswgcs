@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国营商环境评价排名发布，一线城市整体进入全球第一梯队</h3><br><p>全国县域旅游百强县榜单发布，江浙地区占比超六成。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>平遥古城暑期推出实景演出，夜间场次上座率超100%</h3><br><p>超180家机构到访汽车轻量化标的，一体化压铸产能释放。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>光伏玻璃价格单月上涨8%，玻璃龙头盈利弹性大幅释放</h3><br><p>福建高速异动拉升2.2%，海西地区车流量回暖。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>五粮液批价上涨5%，次高端白酒板块迎来行情</h3><br><p>国电南瑞电网自动化高增，单季业绩预告超预期。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>天齐锂业资源禀赋优势：锂矿龙头的盈利弹性测算</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>明阳智能海上风电优势：大兆瓦风机的技术领先性逻辑</h3><br><p>全国戒烟服务门诊覆盖所有三甲医院，吸烟率持续下降。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>英国经济止跌回升，二季度GDP同比增长0.6%</h3><br><p>中国平安寿险新业务价值大增，业绩预告超预期。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>中国电建绿电运营：新能源电站的长期稳定现金流价值。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>服务机器人试点政策落地，家用机器人标的异动。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>医疗大模型通过三类医疗器械认证，辅助诊断准确率超98%</h3><br><p>5年期以上LPR大幅下调20BP，地产链板块全线异动。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>中国赛艇队奥运会夺得2金，水上项目实现历史性跨越</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>暑期高铁游订单同比增长50%，"坐着高铁看中国"成潮流</h3><br><p>5年期LPR超预期下调，房企融资环境边际改善。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>洋河股份梦之蓝放量，单季业绩预告超预期</h3><br><p>洋河股份梦之蓝放量，单季业绩预告超预期。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>新疆暑期游订单破5000万，独库公路日均通车量超2万辆</h3><br><p>全球储能市场规模突破500GWh，新型电力系统建设提速。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>中国中车涨超3.3%，海外轨交订单持续落地</h3><br><p>创新器械企业登陆港股，核心管线海外FDA获批引资金追捧。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>中兴通讯算力布局：从通信设备到算力基础设施的拓展</h3><br><p>全国乒乓球业余赛参赛人数破百万，国球群众基础深厚。<br><br> | 来源：<code>www.fm1033.cn
+</code></p><br><br><h3>存储芯片价格连续上涨12%，存储板块迎来趋势性行情</h3><br><p>牧原股份疫病防控能力：生猪养殖龙头的核心经营壁垒。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露</h3><br><p>国内首款7nm芯片量产，先进制程产业链异动。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>北向资金连续调研后举牌智能电网标的，外资持续流入</h3><br><p>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>中国女子手球队拿到奥运资格，时隔28年重返奥运赛场</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>www.ituijie.com
