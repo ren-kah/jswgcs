@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月28日 01时30分20秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>数字人民币试点扩容，数字人民币产业链走强</h3><br><p>科大讯飞冲高回落，AI算力主线分歧中仍有韧性。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>草原生态保护政策，草牧业板块全线拉升</h3><br><p>机构资金联手买入浪潮信息3.3亿，AI服务器龙头获机构抱团。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>宁德时代商业模式拆解：动力电池龙头的护城河有多深</h3><br><p>苏州园林暑期游客量突破150万人次，江南古典园林游受青睐。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>思源电气电网设备优势：民营电网设备龙头的技术积累</h3><br><p>思源电气电网设备优势：民营电网设备龙头的技术积累。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>中俄双边贸易额上半年突破1200亿美元，创历史新高</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>北方稀土稀土量价齐升，前三季度业绩预增超50%</h3><br><p>海尔智家稳步上行，白电行业格局持续优化。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>智飞生物代理+自研双轮驱动：疫苗行业的稳健成长逻辑</h3><br><p>保险资管连续增持AI安防龙头，海外订单高增获机构认可。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>德国工业产出环比增长1.2%，制造业显现复苏迹象</h3><br><p>药明康德异动拉升5.2%，海外新药订单持续落地。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>泰胜风能海外出口优势：风电塔架出口龙头的成长逻辑</h3><br><p>赣锋锂业回收业务布局：锂电回收的长期成长空间解析。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>国内多模态大模型实现3D场景实时渲染，元宇宙体验升级</h3><br><p>亿纬锂能海外布局：规避贸易壁垒的产能建设逻辑。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>锦浪科技组串式逆变器技术：海外市场份额快速扩张逻辑</h3><br><p>5年期LPR下调带动居民购房意愿回升，地产销售边际改善。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>降准资金定向支持半导体产业，芯片板块获流动性利好。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>糖果产品价格上调6%，休闲食品全产业链景气回升</h3><br><p>百亿级机构组团到访低空经济龙头，低空试飞进展获披露。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>包装纸价格上涨5%，包装板块成本端压力传导顺畅</h3><br><p>全国城市节水型社会建设达标率达85%，用水效率提升。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>国内自驾游人次破10亿，新能源自驾路线成热门选择</h3><br><p>广汽集团埃安品牌独立：传统车企新能源品牌的成长路径。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>国内大模型评测标准发布，统一行业能力评估体系</h3><br><p>北约峰会发布新战略文件，调整东翼防御部署。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>药明康德MACD金叉，技术指标共振带来布局机会</h3><br><p>慢就是快：在高确定性标的上持仓，远比追热点赚得稳。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>养老金新进AI芯片设计标的，布局大模型推理芯片赛道</h3><br><p>国内大模型评测标准发布，统一行业能力评估体系。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>实控人兜底式增持游戏出海龙头，员工响应参与超预期</h3><br><p>北向资金大额增持五粮液，白酒龙头外资持仓环比提升。<br><br> | 来源：<code>www.gzly118.com
+</code></p><br><br><h3>社保基金新进锂电回收龙头，布局循环经济高景气赛道</h3><br><p>机构席位大额买入洋河股份6900万，白酒龙头获长线布局。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>全国东北虎种群数量突破70只，野生虎栖息地持续扩大</h3><br><p>中天科技海缆+储能协同：多元化能源企业的成长逻辑。<br><br> | 来源：<code>www.fm1033.cn
