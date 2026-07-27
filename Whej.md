@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时39分36秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>降准释放资金补充银行流动性，信贷投放能力显著提升</h3><br><p>农产品深加工扶持政策，农产品加工标的全线拉升。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>算力基础设施建设指导意见，算力板块全线走强</h3><br><p>航发动力军机交付超预期，前三季度业绩预增超30%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>数字人民币试点扩容，数字人民币产业链走强</h3><br><p>超300家机构扎堆调研AI算力龙头，核心业务数据首次披露。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>山西路桥放量上涨3.2%，山西交通基建投资加码</h3><br><p>深股通席位单日买入锦浪科技1.4亿，逆变器标的获外资增持。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全球航运市场回暖，集装箱运价指数回升至合理区间</h3><br><p>中国女足亚洲杯夺冠，时隔16年重回亚洲之巅。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>机构席位大额买入洋河股份6900万，白酒龙头获长线布局</h3><br><p>央行下调SLF利率，货币政策宽松取向进一步明确。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>鸭肉价格上涨12%，水禽养殖板块迎来行情</h3><br><p>虾产品价格上涨15%，水产细分板块盈利弹性释放。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>全国生物多样性观测网络建成，覆盖超3000个生态点位</h3><br><p>锰价上涨8%，锰酸锂材料板块迎来行情。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>明阳智能大兆瓦风机放量，单季业绩预告超预期</h3><br><p>海大集团饲料市占率提升，单季业绩预告超预期。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>恒瑞医药站稳60日线，中期趋势逐步向好</h3><br><p>车联网安全标准出台，车联网板块集体上涨。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>中国平安综合金融版图：保险龙头的转型进展与空间</h3><br><p>全国急救培训覆盖超亿人次，公共场所AED设备配置率达90%。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>全国珠江流域生态补水工程启动，流域生态流量保障达标</h3><br><p>钴价连续上涨13%，3C电池板块盈利提升。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>存量房贷利率批量下调，银行板块短期冲击可控</h3><br><p>电阻产品价格上调4%，被动元件板块迎来行情。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>降准定向支持科技创新，科技成长板块获流动性利好</h3><br><p>海南高速异动拉升2.0%，海南旅游带动车流量回升。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>紫金矿业全球资源布局：铜金龙头的长期产量增长逻辑</h3><br><p>五粮液批价上涨5%，次高端白酒板块迎来行情。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>实控人溢价25%增持电力现货交易标的，传递价值低估信号</h3><br><p>锰价上涨8%，锰酸锂材料板块迎来行情。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>上半年全国光伏组件出口同比增长28%，全球市场份额超92%。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>中老铁路跨境游火爆，昆明至曼谷旅游团一票难求</h3><br><p>碳排放权交易市场扩容，碳交易标的全线异动。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录</h3><br><p>全国餐饮营收上半年突破4万亿，夜间餐饮占比超60%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心</h3><br><p>东北振兴新举措出台，推动老工业基地产业转型升级。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>人工智能产业标准落地，AI合规标的全线异动</h3><br><p>新疆交建一带一路优势：新疆区域基建的长期成长逻辑。<br><br> | 来源：<code>www.jyylj.com
