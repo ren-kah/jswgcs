@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分43秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>机构资金联手买入明阳智能1.2亿，风机龙头获机构抱团</h3><br><p>5年期LPR超预期下调，房企融资环境边际改善。<br><br> | 来源：<code>https://huangyouxiazai.com.cn
+</code></p><br><br><h3>全国工业余热利用项目大规模落地，年节能超千万吨标准煤</h3><br><p>东方电缆海缆技术壁垒：深海海缆的国产替代领先地位。<br><br> | 来源：<code>https://huangyouyouxi.com.cn
+</code></p><br><br><h3>华为昇腾算力集群规模破万卡，支撑超百家大模型企业训练</h3><br><p>中国皮划艇队世锦赛斩获3金，静水项目优势持续扩大。<br><br> | 来源：<code>https://huangyouyouxidaquan.com.cn
+</code></p><br><br><h3>全球农业科技市场规模突破3000亿美元，智慧农业普及</h3><br><p>千禾味业零添加差异化路线：调味品赛道的突围逻辑。<br><br> | 来源：<code>https://huangyouyouxiku.com.cn
+</code></p><br><br><h3>长沙五一广场暑期夜间客流超25万，文和友等网红店排号超千桌</h3><br><p>中国举重队世锦赛打破12项世界纪录，优势项目持续领先。<br><br> | 来源：<code>https://huangyouyouxixiazai.com.cn
+</code></p><br><br><h3>锦浪科技组串式逆变器技术：海外市场份额快速扩张逻辑</h3><br><p>AI智能客服替代率超80%，企业客服成本下降60%。<br><br> | 来源：<code>https://huangyouzaixianwan.com.cn
+</code></p><br><br><h3>存款利率市场化调整机制优化，银行负债端成本进一步压降</h3><br><p>全国新能源装机容量突破21亿千瓦，占总装机比重超52%。<br><br> | 来源：<code>https://huangyouziyuan.com.cn
+</code></p><br><br><h3>多氟多六氟磷酸锂布局：锂电材料细分龙头的周期成长</h3><br><p>零跑汽车高性价比路线：下沉市场新能源车企的成长逻辑。<br><br> | 来源：<code>https://huangyouzuofang.com.cn
+</code></p><br><br><h3>存款利率市场化改革深化，银行负债成本持续优化</h3><br><p>武汉马拉松开跑，2.5万跑者穿越长江大桥刷新赛事纪录。<br><br> | 来源：<code>https://huanleguzuixindizhifabuye.cn
+</code></p><br><br><h3>全国马术赛事超百场，马术运动从小众走向大众</h3><br><p>长征国家文化公园全面建成，红色旅游年接待人次突破15亿。<br><br> | 来源：<code>https://huimeili.com.cn
+</code></p><br><br><h3>超240家机构到访氢能燃料电池标的，商用车推广数据公开</h3><br><p>北京马拉松参赛规模扩至3万人，报名人数破50万创新高。<br><br> | 来源：<code>https://huoyingbenzi.com.cn
+</code></p><br><br><h3>AI办公软件渗透率超60%，成为职场人必备工具</h3><br><p>全国羽毛球锦标赛落幕，00后小将包揽三项冠军。<br><br> | 来源：<code>https://huoyingcc.com.cn
+</code></p><br><br><h3>全国大学生就业帮扶行动启动，国企新增岗位超80万</h3><br><p>中国现代五项队世锦赛夺得金牌，全能项目实现突破。<br><br> | 来源：<code>https://huoyinghuang.com.cn
+</code></p><br><br><h3>温氏股份禽畜双主业布局：养殖行业的稳健成长逻辑</h3><br><p>全球跨境直接投资回升至1.5万亿美元，流向绿色产业。<br><br> | 来源：<code>https://huoyingrenzhe-tongren.com.cn
+</code></p><br><br><h3>北向资金大额增持中兴通讯，通信龙头外资持仓环比大增</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>https://huoyingrenzhe-tongrendongman.com.cn
+</code></p><br><br><h3>多晶硅价格连续上涨7%，光伏产业链价格体系企稳回升</h3><br><p>控股股东耗资3亿增持车载雷达标的，回购注销增厚业绩。<br><br> | 来源：<code>https://huoyingrenzhebenzimanhua.com.cn
+</code></p><br><br><h3>国内高铁游人次上半年破10亿，“快旅慢游”成主流模式</h3><br><p>多地发放亿元文旅消费券，直接带动消费超30亿。<br><br> | 来源：<code>https://huoyingrenzhechutianbenzi.com.cn
+</code></p><br><br><h3>产业资本连续增持储能温控龙头，产业链上下游协同布局</h3><br><p>央行表态适时加大政策力度，后续降准降息仍有空间。<br><br> | 来源：<code>https://huoyingrenzheh.com.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>AI个性化推荐大模型升级，用户体验提升同时避免信息茧房。<br><br> | 来源：<code>https://huoyingrenzhehuangbenzi.com.cn
+</code></p><br><br><h3>通威股份硅料成本优势：光伏全产业链龙头的盈利韧性</h3><br><p>社保基金现身半导体材料龙头，国产替代率突破70%。<br><br> | 来源：<code>https://huoyingrenzhehuangyou.com.cn
