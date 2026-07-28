@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分40秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>东北振兴新举措出台，推动老工业基地产业转型升级</h3><br><p>东方财富放量大涨，券商板块异动激活市场人气。<br><br> | 来源：<code>https://91pojieban.cn
+</code></p><br><br><h3>酸奶产品价格上调4%，乳业细分板块盈利提升</h3><br><p>五粮液重回165元，中秋旺季备货提前启动。<br><br> | 来源：<code>https://91pro.com.cn
+</code></p><br><br><h3>华为盘古大模型行业落地，工业AI板块持续升温</h3><br><p>游资顶级席位打板沃森生物9800万，疫苗标的获热炒。<br><br> | 来源：<code>https://91she.com.cn
+</code></p><br><br><h3>国内大模型国际标准制定话语权提升，主导十余项国际标准</h3><br><p>预制菜核心标的开启新股申购，B端渠道覆盖全国连锁餐饮。<br><br> | 来源：<code>https://91shequ.com.cn
+</code></p><br><br><h3>平高电气放量上涨4.0%，特高压开关份额提升</h3><br><p>全国绿色供应链示范企业超千家，带动上下游产业低碳转型。<br><br> | 来源：<code>https://91shi.cn
+</code></p><br><br><h3>中国船舶涨超4.5%，造船行业订单持续饱满</h3><br><p>白卡纸价格连续上涨8%，白卡纸龙头盈利弹性释放。<br><br> | 来源：<code>https://91shi.com.cn
+</code></p><br><br><h3>福建高速异动拉升2.2%，海西地区车流量回暖</h3><br><p>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局。<br><br> | 来源：<code>https://91shipin.com.cn
+</code></p><br><br><h3>张家界暑期游客量突破300万人次，山岳旅游热度攀升</h3><br><p>美联储降息后大宗商品集体上涨，有色板块全线异动。<br><br> | 来源：<code>https://91shipinwang.cn
+</code></p><br><br><h3>闻泰科技ODM+半导体双轮驱动：平台型企业的成长逻辑</h3><br><p>央行加大公开市场操作力度，资金面维持平稳宽松。<br><br> | 来源：<code>https://91wangcn.com.cn
+</code></p><br><br><h3>全国体育旅游精品线路超千条，带动沿线经济发展</h3><br><p>多地景区推出免票政策，国有A级景区免票覆盖超300家。<br><br> | 来源：<code>https://91wangguanwang.com.cn
+</code></p><br><br><h3>外资机构席位净买入双汇发展6400万，肉制品龙头获加仓</h3><br><p>全球医疗健康支出突破10万亿美元，老龄化驱动需求增长。<br><br> | 来源：<code>https://91wangye.com.cn
+</code></p><br><br><h3>中新（新加坡）自贸协定升级，服务贸易开放度大幅提升</h3><br><p>全球人口突破81亿，人口结构变化重塑经济格局。<br><br> | 来源：<code>https://91wangyeliulanqi.cn
+</code></p><br><br><h3>液冷技术标的开启新股申购，AI数据中心液冷订单爆发式增长</h3><br><p>锂矿板块触底反弹：行业拐点是否已经正式确立。<br><br> | 来源：<code>https://91wangyeliulanqimianfeiban.com.cn
+</code></p><br><br><h3>中国短道速滑队世锦赛斩获4金，新老交替完成实力回升</h3><br><p>老旧小区改造升级，家装家居标的全线拉升。<br><br> | 来源：<code>https://91wangzhandaquan.cn
+</code></p><br><br><h3>长城汽车品类创新能力：坦克+欧拉的产品差异化逻辑</h3><br><p>宁德时代商业模式拆解：动力电池龙头的护城河有多深。<br><br> | 来源：<code>https://91wangzhi.com.cn
+</code></p><br><br><h3>人形机器人核心标的启动申购，发行价对应估值具备吸引力</h3><br><p>全国野生东北豹种群数量突破100只，生物链完整性恢复。<br><br> | 来源：<code>https://91xin.com.cn
+</code></p><br><br><h3>北向资金连续加仓海康威视，AI安防龙头获外资持续布局</h3><br><p>北向资金大额扫货万华化学1.3亿，化工龙头获外资流入。<br><br> | 来源：<code>https://91zaixian-guankan.com.cn
+</code></p><br><br><h3>汽车零部件赛道景气度上行：细分方向机会全梳理</h3><br><p>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入。<br><br> | 来源：<code>https://91zaixianguankan.cn
+</code></p><br><br><h3>深股通席位单日买入锦浪科技1.4亿，逆变器标的获外资增持</h3><br><p>东方雨虹渠道优势：建材龙头的全国化布局与品牌溢价。<br><br> | 来源：<code>https://91zh.com.cn
+</code></p><br><br><h3>暑期国内游人次突破18亿，跨省长线游订单同比暴涨120%</h3><br><p>硅片价格单月上涨5%，光伏制造环节盈利边际改善。<br><br> | 来源：<code>https://91zhuiju.com.cn
