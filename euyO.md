@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分19秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>外资机构席位净买入江铃汽车4600万，轻卡龙头获外资加仓</h3><br><p>全国城市公共交通新能源化率达100%，零排放出行普及。<br><br> | 来源：<code>https://aiyeguanfangrukou.net.cn
+</code></p><br><br><h3>广州珠江夜游暑期航班加密，日均接待游客超5万人次</h3><br><p>宇通客车全球客车龙头优势：新能源客车的全球份额扩张。<br><br> | 来源：<code>https://aiyeguanwang.net.cn
+</code></p><br><br><h3>乳制品价格小幅上调，乳业龙头盈利边际改善</h3><br><p>润和软件涨超7.2%，鸿蒙生态业务落地加速。<br><br> | 来源：<code>https://aiyeshipin.com.cn
+</code></p><br><br><h3>中国男子举重队世锦赛打破5项世界纪录，统治力依旧</h3><br><p>隆基绿能底部抬升，上升通道内的低吸窗口显现。<br><br> | 来源：<code>https://aiyeshipin.net.cn
+</code></p><br><br><h3>机器人减速器标的启动申购，谐波减速器国产替代率突破50%</h3><br><p>公募基金集中调研智慧矿山龙头，煤矿智能化改造订单翻倍。<br><br> | 来源：<code>https://aiyeshipinapp.net.cn
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>国产大飞机C919批量交付，民航产业链标的上涨。<br><br> | 来源：<code>https://aiyeshipinguanwang.net.cn
+</code></p><br><br><h3>伊利股份产品矩阵：全品类乳制品的市场覆盖优势</h3><br><p>全国塑料污染治理专项行动推进，一次性塑料制品减量30%。<br><br> | 来源：<code>https://aiyeshipinwangzhan.net.cn
+</code></p><br><br><h3>中国女子摔跤队世锦赛斩获3金，奥运备战实力强劲</h3><br><p>机构席位大额买入澜起科技8500万，内存芯片龙头获布局。<br><br> | 来源：<code>https://aiyeshipinxiazai.net.cn
+</code></p><br><br><h3>明阳智能大兆瓦风机放量，单季业绩预告超预期</h3><br><p>中国五子棋队世锦赛包揽金牌，智力运动版图持续扩大。<br><br> | 来源：<code>https://aiyewangyeban.net.cn
+</code></p><br><br><h3>千禾味业放量上涨4.3%，零添加产品份额持续提升</h3><br><p>科达利放量拉升4.7%，锂电池结构件订单饱满。<br><br> | 来源：<code>https://aiyewangzhan.net.cn
+</code></p><br><br><h3>洛阳龙门石窟暑期游客量突破200万人次，石窟艺术游受追捧</h3><br><p>头部机构组团到访中药创新药标的，医保谈判结果超预期。<br><br> | 来源：<code>https://aiyexiazai.net.cn
+</code></p><br><br><h3>三星堆新出土文物超千件，古蜀文明研究取得重大突破</h3><br><p>超220家机构到访AI教育龙头，付费用户规模环比大增。<br><br> | 来源：<code>https://akeelahandthebee.com.cn
+</code></p><br><br><h3>长征国家文化公园全面建成，红色旅游年接待人次突破15亿</h3><br><p>上半年全国实际使用外资同比增长3.1%，高技术产业占比超40%。<br><br> | 来源：<code>https://an-dashi.cn
+</code></p><br><br><h3>全国企业债券发行规模上半年达3.5万亿元，直接融资占比提升</h3><br><p>降准释放资金定向支持基建，基建板块迎来流动性利好。<br><br> | 来源：<code>https://anquye.com.cn
+</code></p><br><br><h3>医疗机器人纳入医保，医疗机器人板块全线走强</h3><br><p>中国平安综合金融版图：保险+银行+投资的协同优势。<br><br> | 来源：<code>https://anwangchigua.cn
+</code></p><br><br><h3>全国家政服务业营收上半年同比增长16%，民生消费升温</h3><br><p>维生素A价格单月上涨18%，饲料添加剂板块迎来行情。<br><br> | 来源：<code>https://anzhailala.com.cn
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>外资机构席位净买入恒瑞医药2.4亿，创新药龙头获外资加仓。<br><br> | 来源：<code>https://anzhuohuangyou.com.cn
+</code></p><br><br><h3>多地景区推出免票政策，国有A级景区免票覆盖超300家</h3><br><p>呼吸道疾病高发，儿科医药板块集体上涨。<br><br> | 来源：<code>https://aocai-2448442-net.com
+</code></p><br><br><h3>全国夜间体育赛事活动超千场，赛事经济带动周边消费</h3><br><p>三一重工放量上涨，工程机械行业景气度边际改善。<br><br> | 来源：<code>https://app-188-net.com.cn
+</code></p><br><br><h3>中芯国际单季盈利创历史新高，半导体板块全线走强</h3><br><p>保险资管连续增持酒店连锁龙头，消费复苏获机构长期配置。<br><br> | 来源：<code>https://app-biwei-vip.com.cn
